@@ -101,7 +101,7 @@
 43. Galaksiler yok.
 44. Evrenin nasıl oluştuğu yanlış anlatılıyor.
 45. Dünyanın oluşumu bilime zıt…
-46. Güneş dünyanın etrafında döner diyor. [21:33](https://acikkuran.com/21/33)
+46. Güneş dünyanın etrafında döner diyor. [2:258](https://acikkuran.com/2/258)
 47. Allah pek çok ayette beddua ediyor. [63:4](https://acikkuran.com/63/4) [9:30](https://acikkuran.com/9/30)
 48. Kuran'da kadınlara hitap yok.
 49. Hayvanları hâkir görüyor "maymunlar" diyor. [2:65](https://acikkuran.com/2/65) [5:60](https://acikkuran.com/5/60)
