@@ -46,6 +46,7 @@
   - [Cehennem'in yemeği](#cehennemin-yemeği)
 - [Mantık hataları](#mantık-hataları)
   - [Tanrının ganimeti](#tanrının-ganimeti)
+  - [Muhammed'in ayeti](#muhammedin-ayeti)
 - [Kur'an, İncil ve Tevrat](#kuran-i̇ncil-ve-tevrat)
   - [Kur'an ve İncil](#kuran-ve-i̇ncil)
   - [Kur'an ve Tevrat](#kuran-ve-tevrat)
@@ -53,6 +54,7 @@
   - [Surya Namaskar](#surya-namaskar)
   - [Vardığım sonuç](#vardığım-sonuç)
   - [İlgili Kur'an ayeti](#i̇lgili-kuran-ayeti)
+
 
 # Kur'an'a inanmamak için 100 neden
 
@@ -567,6 +569,12 @@ Gaşiye-6 ayetinde cehhennemde sadece dikenli bitki yeneceğini söylenirken Duh
 Enfal-41 ayetinde savaş ganimetinin beşte biri Allah ve Peygamber'e verilecek diyor. Allah bir tanrı olduğuna göre kendi yarattığı maddi varlıklara ihtiyaç duymaz. Ayrıca Peygamber öldükten sonra ayet geçersiz olacağı için tanrının bunu belirtmesi mantıksız.
 
 > "...ganimetin beşte biri mutlaka Allah'a, Peygamber'e, onun yakınlarına..." [8:41](https://acikkuran.com/8/41)
+
+## Muhammed'in ayeti
+
+Meryem-41 ayetinde Allah Muhammed'ten ayet yazmasını istiyor oysa ayetler Allah'ın sözüdür. Bu bir mantık hatası.
+
+> "Kitapta İbrahim'i de an. Gerçekten o, son derece dürüst bir kimse, bir peygamber idi." [19:41](https://acikkuran.com/19/41)
 
 # Kur'an, İncil ve Tevrat
 
