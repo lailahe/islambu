@@ -566,7 +566,7 @@ Gaşiye-6 ayetinde cehhennemde sadece dikenli bitki yeneceğini söylenirken Duh
 
 Enfal-41 ayetinde savaş ganimetinin beşte biri Allah ve Peygamber'e verilecek diyor. Allah bir tanrı olduğuna göre kendi yarattığı maddi varlıklara ihtiyaç duymaz. Ayrıca Peygamber öldükten sonra ayet geçersiz olacağı için tanrının bunu belirtmesi mantıksız.
 
-"...ganimetin beşte biri mutlaka Allah'a, Peygamber'e, onun yakınlarına..." [8:41](https://acikkuran.com/8/41)
+> "...ganimetin beşte biri mutlaka Allah'a, Peygamber'e, onun yakınlarına..." [8:41](https://acikkuran.com/8/41)
 
 # Kur'an, İncil ve Tevrat
 
