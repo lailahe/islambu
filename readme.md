@@ -12,6 +12,7 @@
   - [Ölünün diriltilmesi](#ölünün-diriltilmesi)
   - [Denizin yarılması](#denizin-yarılması)
   - [Ay'ın yarılması](#ayın-yarılması)
+  - [Katırın yaratılışı](#katırın-yaratılışı)
   - [Hayvanların 8 çift olması](#hayvanların-8-çift-olması)
   - [Şeytana atılan kandiller](#şeytana-atılan-kandiller)
   - [Savaşçı Melekler](#savaşçı-melekler)
@@ -43,6 +44,8 @@
   - [Musevilere "Yahudi" denmesi](#musevilere-yahudi-denmesi)
   - [İnananlar Muhammed'in kulu mu?](#i̇nananlar-muhammedin-kulu-mu)
   - [Cehennem'in yemeği](#cehennemin-yemeği)
+- [Mantık hataları](#mantık-hataları)
+  - [Tanrının ganimeti](#tanrının-ganimeti)
 - [Kur'an, İncil ve Tevrat](#kuran-i̇ncil-ve-tevrat)
   - [Kur'an ve İncil](#kuran-ve-i̇ncil)
   - [Kur'an ve Tevrat](#kuran-ve-tevrat)
@@ -251,6 +254,12 @@ Denizin yarılması bilim dışı sözde mucizedir.
 ## Ay'ın yarılması
 
 > "Kıyamet yaklaştı ve **ay yarıldı**." [54:1](https://acikkuran.com/54/1)
+
+## Katırın yaratılışı
+
+Katır, erkek eşek (merkep) ile dişi atın (kısrak) çiftleşmesiyle meydana gelen ve çoğu kez kısır olan melez hayvandır fakat Nahl-8 ayetinde üçünün de ayrı ayrı yaratıldığı iddia edilir.
+
+> "Hem binesiniz diye, hem de süs olarak atları, katırları ve merkepleri de yarattı. Bilemeyeceğiniz daha nice şeyleri de yaratır." [16:8](https://acikkuran.com/16/8)
 
 ## Hayvanların 8 çift olması
 
@@ -550,6 +559,14 @@ Gaşiye-6 ayetinde cehhennemde sadece dikenli bitki yeneceğini söylenirken Duh
 > "Onlara, acı ve kötü kokulu bir **dikenli bitkiden başka yiyecek yoktur**." [88:6](https://acikkuran.com/88/6) 
 
 > "Doğrusu (cehennemde) günahkarların yiyeceği zakkum ağacıdır; karınlarda suyun kaynaması gibi kaynayan, erimiş maden gibidir." [44:42](https://acikkuran.com/44/42), [44:43](https://acikkuran.com/44/43), [44:44](https://acikkuran.com/44/44)
+
+# Mantık hataları
+
+## Tanrının ganimeti
+
+Enfal-41 ayetinde savaş ganimetinin beşte biri Allah ve Peygamber'e verilecek diyor. Allah bir tanrı olduğuna göre kendi yarattığı maddi varlıklara ihtiyaç duymaz. Ayrıca Peygamber öldükten sonra ayet geçersiz olacağı için tanrının bunu belirtmesi mantıksız.
+
+"...ganimetin beşte biri mutlaka Allah'a, Peygamber'e, onun yakınlarına..." [8:41](https://acikkuran.com/8/41)
 
 # Kur'an, İncil ve Tevrat
 
