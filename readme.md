@@ -196,7 +196,7 @@ Yerin 2, dağların 4, göklerin ise 2 günde yaratılmış olması ve yerin gö
 
 ## Miras dağıtımında matematik hatası
 
-Nisa suresindeki miras paylaşımındaki matematik hatası şu şekildedir. Üç ayete göre  kişi öldüğünde geriye sadece annesi kalırsa `1/3` (Nisa, 11), eğer çocuk yoksa ve sadece koca kalırsa `1/2` (Nisa, 12), ölenin çocuğu yoksa ve bir de kız kardeşi bulunursa `1/2` (Nisa, 176) oranında pay alacaklardır. Hal böyle olunca da netice `1/3 + 1/2 + 1/2 = 8/6` çıkacak ve sonuç net olarak 1'i vermeyecektir.
+Nisa suresindeki miras paylaşımındaki matematik hatası şu şekildedir. Üç ayete göre  kişi öldüğünde geriye sadece annesi kalırsa `1/3` [(Nisa-11)](https://acikkuran.com/4/11), eğer çocuk yoksa ve sadece koca kalırsa `1/2` [(Nisa-12)](https://acikkuran.com/4/12), ölenin çocuğu yoksa ve bir de kız kardeşi bulunursa `1/2` [(Nisa-176)](https://acikkuran.com/4/176) oranında pay alacaklardır. Hal böyle olunca da netice `1/3 + 1/2 + 1/2 = 8/6` çıkacak ve sonuç net olarak 1'i vermeyecektir.
 
 ## Güneşin kara çamurlu bir suya batması.
 
