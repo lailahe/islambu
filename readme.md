@@ -53,7 +53,7 @@
 - [Namaz ve Namaskar benzerliği](#namaz-ve-namaskar-benzerliği)
   - [Surya Namaskar](#surya-namaskar)
   - [Vardığım sonuç](#vardığım-sonuç)
-  - [İlgili Kur'an ayeti](#i̇lgili-kuran-ayeti)
+  - [İlgili Kuran ayeti](#i̇lgili-kuran-ayeti)
 
 
 # Kur'an'a inanmamak için 100 neden
