@@ -1,4 +1,4 @@
-- [Kur'an'a inanmamak için 100 neden](#kurana-inanmamak-için-100-neden)
+- [Kur'an'a inanmamak için nedenler](#kurana-inanmamak-için-nedenler)
 - [Bilim dışı ayetler](#bilim-dışı-ayetler)
   - [İnsan nasıl yaratıldı?](#i̇nsan-nasıl-yaratıldı)
   - [Cennetin genişliği](#cennetin-genişliği)
@@ -56,108 +56,104 @@
   - [İlgili Kuran ayeti](#i̇lgili-kuran-ayeti)
 
 
-# Kur'an'a inanmamak için 100 neden
+# Kur'an'a inanmamak için nedenler
 
-1. Köleliği yasaklamıyor. [2:177](https://acikkuran.com/2/177) [2:221](https://acikkuran.com/2/221) [4:24](https://acikkuran.com/4/24) [4:25](https://acikkuran.com/4/25) [4:36](https://acikkuran.com/4/36) [4:92](https://acikkuran.com/4/92) [5:89](https://acikkuran.com/5/89) [9:60](https://acikkuran.com/9/60) [16:71](https://acikkuran.com/16/71) [16:75](https://acikkuran.com/16/75) [23:5](https://acikkuran.com/23/5) [23:6](https://acikkuran.com/23/6) [24:33](https://acikkuran.com/24/33) [24:58](https://acikkuran.com/24/58) [33:26](https://acikkuran.com/33/26) [33:50](https://acikkuran.com/33/50) [33:52](https://acikkuran.com/33/52) [33:55](https://acikkuran.com/33/55) [58:3](https://acikkuran.com/58/3) [70:29](https://acikkuran.com/70/29) [70:30](https://acikkuran.com/70/30) [76:8](https://acikkuran.com/76/8) [90:12](https://acikkuran.com/90/12) [90:13](https://acikkuran.com/90/13) [30:28](https://acikkuran.com/30/28)
-2. Kadını dövmeyi emrediyor. [4:34](https://acikkuran.com/4/34)
-3. Dünyayı düz olarak tasvir ediyor. [15:19](https://acikkuran.com/15/19) [13:3](https://acikkuran.com/13/3) [50:7](https://acikkuran.com/50/7) [88:20](https://acikkuran.com/88/20) [91:6](https://acikkuran.com/91/6) [79:30](https://acikkuran.com/79/30) [84:3](https://acikkuran.com/84/3) [2:22](https://acikkuran.com/2/22) [78:6](https://acikkuran.com/78/6) [78:7](https://acikkuran.com/78/7) [51:48](https://acikkuran.com/51/48)
-4. Ayetlerde konuşanın kim olduğu belli değil. [11:2](https://acikkuran.com/11/2) [51:51](https://acikkuran.com/51/51) [6:114](https://acikkuran.com/6/114) [15:9](https://acikkuran.com/15/9) [81:19](https://acikkuran.com/81/19) [81:20](https://acikkuran.com/81/20) [33:56](https://acikkuran.com/33/56)
-5. Spermin testiste oluştuğunu bilmiyor. [86:7](https://acikkuran.com/86/7)
-6. Her canlıyı çift yarattık diyor bakterilerden haberi yok. [51:49](https://acikkuran.com/51/49)
-7. Güneşin çamura battığını iddia ediyor. [18:86](https://acikkuran.com/18/86)
-8. Yıldızlar şeytanın atış tanesi diyor. [67:5](https://acikkuran.com/67/5)
-9. Kutuplar yok. [2:187](https://acikkuran.com/2/187)
-10. Milyonlarca yıl dinozorlar yok ama deveden bahsediyor! [88:17](https://acikkuran.com/88/17)
-11. İnsansı canlılar yok ama melekler şeytanlar ve cinler var. [2:102](https://acikkuran.com/2/102) [6:8](https://acikkuran.com/6/8) [6:9](https://acikkuran.com/6/9) [7:20](https://acikkuran.com/7/20)
-12. Kalp düşünme organı sanılıyor. [47:24](https://acikkuran.com/47/24) [7:179](https://acikkuran.com/7/179) [22:46](https://acikkuran.com/22/46) [3:119](https://acikkuran.com/3/119)
-13. Mirasta adaletsiz. [4:11](https://acikkuran.com/4/11) [4:12](https://acikkuran.com/4/12)
-14. Şahitlikte kadın ve erkeği bir tutmuyor. [2:282](https://acikkuran.com/2/282)
-15. Sadece Arap kavmi için yazılmıştır. [41:44](https://acikkuran.com/41/44) [12:2](https://acikkuran.com/12/2) [26:198](https://acikkuran.com/26/198) [26:199](https://acikkuran.com/26/199) [6:92](https://acikkuran.com/6/92)
-16. Peygamberin seks sırası anlatılıyor. [33:51](https://acikkuran.com/33/51)
-17. Birçok ayet birbirini yalanlıyor. [7:143](https://acikkuran.com/7/143) [6:163](https://acikkuran.com/6/163) [3:67](https://acikkuran.com/3/67)
-18. El ayak kesme gibi cezalar öneriyor. [5:33](https://acikkuran.com/5/33) [5:38](https://acikkuran.com/5/38)
-19. Kelle kesmeyi emrediyor. [47:4](https://acikkuran.com/47/4)
-20. Nerede bulursanız öldürün diyor. [2:191](https://acikkuran.com/2/191)
-21. Sadece Muhammed'e özel kadınlar listesi var. [33:50](https://acikkuran.com/33/50)
-22. Kadının cariye olmasına onay veriyor. [70:30](https://acikkuran.com/70/30) [4:24](https://acikkuran.com/4/24) [4:25](https://acikkuran.com/4/25) [23:6](https://acikkuran.com/23/6) [24:33](https://acikkuran.com/24/33)
-23. Ayetlerin bazılarında anlatım bozuklukları var.
-24. Anlayasınız diye Arapça indirdik deniliyor. [12:2](https://acikkuran.com/12/2)
-25. "Mekke ve civarı için indirdik" diyen ayet var. [6:92](https://acikkuran.com/6/92)
-26. Ebu Leheb'e beddua ve hakaretler var. [111:1](https://acikkuran.com/111/1) [111:5](https://acikkuran.com/111/5)
-27. Peygamberin evinden misafir kovma ayeti var. [33:53](https://acikkuran.com/33/53)
-28. Peygamber evlatlığı Zeyd'in karısını alıyor. [33:37](https://acikkuran.com/33/37)
-29. Evlenme yaşı için sınır yok.
-30. Sınırsız cariye helal. [23:6](https://acikkuran.com/23/6) [24:32](https://acikkuran.com/24/32) [24:33](https://acikkuran.com/24/33) [33:50](https://acikkuran.com/33/50) [33:52](https://acikkuran.com/33/52) [33:55](https://acikkuran.com/33/55) [70:30](https://acikkuran.com/70/30)
-31. Ayetleri sorgulamayın diye ayet var. [5:101](https://acikkuran.com/5/101)
-32. Zina ve içkiyi ahirette ödül olarak anlatıyor. [2:219](https://acikkuran.com/2/219) [5:90](https://acikkuran.com/5/90) [5:91](https://acikkuran.com/5/91) [10:4](https://acikkuran.com/10/4) [16:67](https://acikkuran.com/16/67) [2:25](https://acikkuran.com/2/25) [3:15](https://acikkuran.com/3/15) [44:54](https://acikkuran.com/44/54) [52:20](https://acikkuran.com/52/20) [55:72](https://acikkuran.com/55/72) [56:23](https://acikkuran.com/56/23) [78:33](https://acikkuran.com/78/33) [78:34](https://acikkuran.com/78/34)
-33. Eşcinselleri lanetliyor. [4:15](https://acikkuran.com/4/15) [4:16](https://acikkuran.com/4/16) [7:80](https://acikkuran.com/7/80) [7:81](https://acikkuran.com/7/81) [15:71](https://acikkuran.com/15/71) [26:165](https://acikkuran.com/26/165) [27:55](https://acikkuran.com/27/55)
-34. Gayrimüslimlerin cennete girebileceği söyleniyor zıttı da var. [2:62](https://acikkuran.com/2/62) [5:69](https://acikkuran.com/5/69) [24:39](https://acikkuran.com/24/39) [11:15](https://acikkuran.com/11/15) [11:16](https://acikkuran.com/11/16) [9:17](https://acikkuran.com/9/17)
-35. Namazın nasıl kılınacağı anlatılmıyor.
-36. Meryem'leri karıştırıyor. [19:28](https://acikkuran.com/19/28)
-37. Lat, Menat ve Uzza putlarını övüyor. [53:19](https://acikkuran.com/53/19) [53:20](https://acikkuran.com/53/20)
-38. Savaşa teşvik eden ayetler var. [2:190](https://acikkuran.com/2/190) [2:193](https://acikkuran.com/2/193) [2:216](https://acikkuran.com/2/216) [2:244](https://acikkuran.com/2/244) [3:166](https://acikkuran.com/3/166) [4:71](https://acikkuran.com/4/71) [4:72](https://acikkuran.com/4/72) [4:76](https://acikkuran.com/4/76) [4:84](https://acikkuran.com/4/84) [8:17](https://acikkuran.com/8/17) [8:39](https://acikkuran.com/8/39) [8:65](https://acikkuran.com/8/65) [9:14](https://acikkuran.com/9/14) [9:15](https://acikkuran.com/9/15) [9:46](https://acikkuran.com/9/46) [9:111](https://acikkuran.com/9/111) [9:123](https://acikkuran.com/9/123) [22:39](https://acikkuran.com/22/39) [33:18](https://acikkuran.com/33/18) [33:19](https://acikkuran.com/33/19) [47:20](https://acikkuran.com/47/20) [48:11](https://acikkuran.com/48/11) [48:16](https://acikkuran.com/48/16)
-39. Savaşta kaç müslümanın kaç kafire denk geldiği anlatılıyor. [8:65](https://acikkuran.com/8/65) [8:66](https://acikkuran.com/8/66)
-40. Kadına savaşta "ganimet" diyor. [4:4](https://acikkuran.com/4/4)
-41. "Cahiliye döneminde açılıp saçılmayın" diyor. [33:33](https://acikkuran.com/33/33)
-42. Ayın yarıldığını iddia ediyor. [54:1](https://acikkuran.com/54/1)
-43. Galaksiler yok.
-44. Evrenin nasıl oluştuğu yanlış anlatılıyor.
-45. Dünyanın oluşumu bilime zıt…
-46. Güneş dünyanın etrafında döner diyor. [2:258](https://acikkuran.com/2/258)
-47. Allah pek çok ayette beddua ediyor. [63:4](https://acikkuran.com/63/4) [9:30](https://acikkuran.com/9/30)
-48. Kuran'da kadınlara hitap yok.
-49. Hayvanları hâkir görüyor "maymunlar" diyor. [2:65](https://acikkuran.com/2/65) [5:60](https://acikkuran.com/5/60)
-50. Muhammed tanrılaştırılıyor. [33:56](https://acikkuran.com/33/56)
-51. Ganimetlerin tamamı peygamberin diyor. [8:1](https://acikkuran.com/8/1) [8:41](https://acikkuran.com/8/41)
-52. Ayşe'nin zina yapıp yapmadığına dair ayetler var. [24:11](https://acikkuran.com/24/11) [24:15](https://acikkuran.com/24/15)
-53. Evrim yok.
-54. İçki konusunda önce olumlu sonra olumsuz ayet geliyor. [16:67](https://acikkuran.com/16/67) [2:219](https://acikkuran.com/2/219) [5:90](https://acikkuran.com/5/90) [5:91](https://acikkuran.com/5/91)
-55. Yahudi ve Hristiyanları dost edinmemeyi emrediyor. [5:51](https://acikkuran.com/5/51)
-56. Kadınlara "Tarla" diyor. [2:223](https://acikkuran.com/2/223)
-57. Peygamberler arasında fark yok diyor Muhammed en değerli diyor.
-58. İyilik ve kötülüğün Allah'tan geldiğini söylüyor.
-59. Uzaya çıkmayı imkansız görüyor. [55:33](https://acikkuran.com/55/33)
-60. Ay'ı nur kaynağı olarak nitelendiriyor. [10:5](https://acikkuran.com/10/5) [71:16](https://acikkuran.com/71/16)
-61. Büyük patlama ile ilgili bilgi yok.
-62. Köleyle hür bir tutulur mu diyor. [16:75](https://acikkuran.com/16/75)
-63. Konuşan karınca ejderha gibi anlatımlar var. [27:18](https://acikkuran.com/27/18) [7:107](https://acikkuran.com/7/107)
-64. İblis için bir ayette melek diğerinde cin diyor. [18:50](https://acikkuran.com/18/50) [2:34](https://acikkuran.com/2/34)
-65. Mahşerde Allah şefaat etmez diyen ayet var eder diyen de. [2:48](https://acikkuran.com/2/48) [43:86](https://acikkuran.com/43/86) [53:26](https://acikkuran.com/53/26) [39:43](https://acikkuran.com/39/43)
-66. Hayvan bitki coğrafi şekil ve besinler Ortadoğu'ya özgü.
-67. Vasiyet şart diyen ayet var değil diyen de. [2:180](https://acikkuran.com/2/180)
-68. Allah Muhammed'e salat ediyor. [33:56](https://acikkuran.com/33/56)
-69. Kıble önce Kudüs sonra Kabe oluyor. [2:144](https://acikkuran.com/2/144)
-70. Cehennemde Ebu Cehil'e düello teklif ediliyor. [96:13](https://acikkuran.com/96/13) [96:19](https://acikkuran.com/96/19)
-71. Rahman suresinin 31 ayeti aynı cümleyi yazıyor.
-72. Allah kıyamet saatini meleklerden öğreniyor.
-73. Cennette kadınlar için vadedilen bir şey yok.
-74. Hayvanları yük taşıma ve ulaşım aracı olarak görüyor.
-75. Bazı ayetler hükmünü yitiriyor ama duruyor.
-76. Peygambere soru sormak için sadaka vermek emrediliyor. [58:12](https://acikkuran.com/58/12)
-77. Cennetin genişliği farklı anlatılıyor. [57:21](https://acikkuran.com/57/21) [3:133](https://acikkuran.com/3/133)
-78. Dünya kainattan önce yaratıldı diyor. [41:9](https://acikkuran.com/41/9) [41:12](https://acikkuran.com/41/12)
-79. Rüzgar olmasa gemiler durur diyor. [42:33](https://acikkuran.com/42/33)
-80. Boşanma konusunda garip bir mantık var. [2:230](https://acikkuran.com/2/230)
-81. Göklerle yer bitişikken ayırdığını iddia ediyor. [21:30](https://acikkuran.com/21/30)
-82. Nuh'un gemisi efsanesi anlatılıyor. [23:27](https://acikkuran.com/23/27) [11:37](https://acikkuran.com/11/37) [11:38](https://acikkuran.com/11/38) [11:42](https://acikkuran.com/11/42) [11:44](https://acikkuran.com/11/44) [7:64](https://acikkuran.com/7/64) [10:73](https://acikkuran.com/10/73) [26:119](https://acikkuran.com/26/119) [29:15](https://acikkuran.com/29/15)
-83. Mekke'de barışçıl Medine'de vahşi ayetler var. [109:6](https://acikkuran.com/109/6) [9:29](https://acikkuran.com/9/29)
-84. Muhammed'in "sapık" olmadığını savunan ayet var. [7:61](https://acikkuran.com/7/61)
-85. Gece ve gündüz anlatımı bilimsellikten uzak.
-86. Mikail meteorolojiden sorumlu diyor.
-87. Tatlı suda mercan ve inci yetişebileceği anlatılıyor. [55:19](https://acikkuran.com/55/19) [55:22](https://acikkuran.com/55/22)
-88. Tevrat'tan alıntılarda hata yapılmış.
-89. Cennet erkeklere özgü bir harem gibi anlatılıyor.
-90. Allah bazı insanlara hidayet vermiyor yakacağını söylüyor.
-91. Göğün yere düşmemesi için tutulduğu yazıyor. [22:65](https://acikkuran.com/22/65)
-92. Miras dağıtımında matematik hatası yapılıyor. [4:11](https://acikkuran.com/4/11) [4:12](https://acikkuran.com/4/12)
-93. Güneşin sıradan bir yıldız olduğu bilinmiyor.
-94. Her şey insan için yaratıldı mantığı var.
-95. Cinlerden bahsediyor bilimsel delil yok.
-96. Allah bazı ayetlerde pazarlık yapıyor.
-97. Hırsızlık haram ama savaşta yağmalama helal. [5:38](https://acikkuran.com/5/38) [4:24](https://acikkuran.com/4/24)
-98. Nisa 23 ensesti yasaklıyor Ahzab 50 peygambere izin veriyor.
-99. Kuran'da "AŞK" kelimesi geçmiyor.
-100. Allah Şimşekle korkutmaya çalışıyor [13:12](https://acikkuran.com/13/12) [13:13](https://acikkuran.com/13/13)
+1. Köleliği yasaklamıyor. [2:177](https://acikkuran.com/2/177) [2:221](https://acikkuran.com/2/221) [4:24](https://acikkuran.com/4/24) [4:25](https://acikkuran.com/4/25) [4:36](https://acikkuran.com/4/36) [4:92]1https://acikkuran.com/4/92) [5:89](https://acikkuran.com/5/89) [9:60](https://acikkuran.com/9/60) [16:71](https://acikkuran.com/16/71) [16:75](https://acikkuran.com/16/75) [23:5](https://acikkuran.com/23/5) [23:6]1https://acikkuran.com/23/6) [24:33](https://acikkuran.com/24/33) [24:58](https://acikkuran.com/24/58) [33:26](https://acikkuran.com/33/26) [33:50](https://acikkuran.com/33/50) [33:52](https://acikkuran.com/33/52) 1:55](https://acikkuran.com/33/55) [58:3](https://acikkuran.com/58/3) [70:29](https://acikkuran.com/70/29) [70:30](https://acikkuran.com/70/30) [76:8](https://acikkuran.com/76/8) [90:12](https://acikkuran.com/90/1) [90:13](https://acikkuran.com/90/13) [30:28](https://acikkuran.com/30/28)
+1. Kadını dövmeyi emrediyor. [4:34](https://acikkuran.com/4/34)
+1. Dünyayı düz olarak tasvir ediyor. [15:19](https://acikkuran.com/15/19) [13:3](https://acikkuran.com/13/3) [50:7](https://acikkuran.com/50/7) [88:20](https://acikkuran.com/88/20) [91:6](https://acikkuran.com/91/1) [79:30](https://acikkuran.com/79/30) [84:3](https://acikkuran.com/84/3) [2:22](https://acikkuran.com/2/22) [78:6](https://acikkuran.com/78/6) [78:7](https://acikkuran.com/78/7) [51:48](https://acikkuran.com/51/1)
+1. Ayetlerde konuşanın kim olduğu belli değil. [11:2](https://acikkuran.com/11/2) [51:51](https://acikkuran.com/51/51) [6:114](https://acikkuran.com/6/114) [15:9](https://acikkuran.com/15/9) [81:19](https://1.com/81/19) [81:20](https://acikkuran.com/81/20) [33:56](https://acikkuran.com/33/56)
+1. Spermin testiste oluştuğunu bilmiyor. [86:7](https://acikkuran.com/86/7)
+1. Her canlıyı çift yarattık diyor bakterilerden haberi yok. [51:49](https://acikkuran.com/51/49)
+1. Güneşin çamura battığını iddia ediyor. [18:86](https://acikkuran.com/18/86)
+1. Yıldızlar şeytanın atış tanesi diyor. [67:5](https://acikkuran.com/67/5)
+1. Kutuplar yok. [2:187](https://acikkuran.com/2/187)
+1. Milyonlarca yıl dinozorlar yok ama deveden bahsediyor! [88:17](https://acikkuran.com/88/17)
+1. İnsansı canlılar yok ama melekler şeytanlar ve cinler var. [2:102](https://acikkuran.com/2/102) [6:8](https://acikkuran.com/6/8) [6:9](https://acikkuran.com/6/9) [7:20](https://acikkuran.com/7/20)
+1. Kalp düşünme organı sanılıyor. [47:24](https://acikkuran.com/47/24) [7:179](https://acikkuran.com/7/179) [22:46](https://acikkuran.com/22/46) [3:119](https://acikkuran.com/3/119)
+1. Mirasta adaletsiz. [4:11](https://acikkuran.com/4/11) [4:12](https://acikkuran.com/4/12)
+1. Şahitlikte kadın ve erkeği bir tutmuyor. [2:282](https://acikkuran.com/2/282)
+1. Sadece Arap kavmi için yazılmıştır. [41:44](https://acikkuran.com/41/44) [12:2](https://acikkuran.com/12/2) [26:198](https://acikkuran.com/26/198) [26:199](https://acikkuran.com/26/199) [6:92](https://1.com/6/92)
+1. Peygamberin seks sırası anlatılıyor. [33:51](https://acikkuran.com/33/51)
+1. Birçok ayet birbirini yalanlıyor. [7:143](https://acikkuran.com/7/143) [6:163](https://acikkuran.com/6/163) [3:67](https://acikkuran.com/3/67)
+1. El ayak kesme gibi cezalar öneriyor. [5:33](https://acikkuran.com/5/33) [5:38](https://acikkuran.com/5/38)
+1. Kelle kesmeyi emrediyor. [47:4](https://acikkuran.com/47/4)
+1. Nerede bulursanız öldürün diyor. [2:191](https://acikkuran.com/2/191)
+1. Sadece Muhammed'e özel kadınlar listesi var. [33:50](https://acikkuran.com/33/50)
+1. Kadının cariye olmasına onay veriyor. [70:30](https://acikkuran.com/70/30) [4:24](https://acikkuran.com/4/24) [4:25](https://acikkuran.com/4/25) [23:6](https://acikkuran.com/23/6) [24:33](https://acikkuran.com/1/33)
+1. Ayetlerin bazılarında anlatım bozuklukları var.
+1. Anlayasınız diye Arapça indirdik deniliyor. [12:2](https://acikkuran.com/12/2)
+1. "Mekke ve civarı için indirdik" diyen ayet var. [6:92](https://acikkuran.com/6/92)
+1. Ebu Leheb'e beddua ve hakaretler var. [111:1](https://acikkuran.com/111/1) [111:5](https://acikkuran.com/111/5)
+1. Peygamberin evinden misafir kovma ayeti var. [33:53](https://acikkuran.com/33/53)
+1. Peygamber evlatlığı Zeyd'in karısını alıyor. [33:37](https://acikkuran.com/33/37)
+1. Evlenme yaşı için sınır yok.
+1. Sınırsız cariye helal. [23:6](https://acikkuran.com/23/6) [24:32](https://acikkuran.com/24/32) [24:33](https://acikkuran.com/24/33) [33:50](https://acikkuran.com/33/50) [33:52](https://acikkuran.com/33/52) 1:55](https://acikkuran.com/33/55) [70:30](https://acikkuran.com/70/30)
+1. Ayetleri sorgulamayın diye ayet var. [5:101](https://acikkuran.com/5/101)
+1. Zina ve içkiyi ahirette ödül olarak anlatıyor. [2:219](https://acikkuran.com/2/219) [5:90](https://acikkuran.com/5/90) [5:91](https://acikkuran.com/5/91) [10:4](https://acikkuran.com/10/4) [16:67](https://1.com/16/67) [2:25](https://acikkuran.com/2/25) [3:15](https://acikkuran.com/3/15) [44:54](https://acikkuran.com/44/54) [52:20](https://acikkuran.com/52/20) [55:72](https://acikkuran.com/55/72) [56:23]1https://acikkuran.com/56/23) [78:33](https://acikkuran.com/78/33) [78:34](https://acikkuran.com/78/34)
+1. Eşcinselleri lanetliyor. [4:15](https://acikkuran.com/4/15) [4:16](https://acikkuran.com/4/16) [7:80](https://acikkuran.com/7/80) [7:81](https://acikkuran.com/7/81) [15:71](https://acikkuran.com/15/71) [26:165]1https://acikkuran.com/26/165) [27:55](https://acikkuran.com/27/55)
+1. Gayrimüslimlerin cennete girebileceği söyleniyor zıttı da var. [2:62](https://acikkuran.com/2/62) [5:69](https://acikkuran.com/5/69) [24:39](https://acikkuran.com/24/39) [11:15](https://acikkuran.com/11/15) 1:16](https://acikkuran.com/11/16) [9:17](https://acikkuran.com/9/17)
+1. Meryem'leri karıştırıyor. [19:28](https://acikkuran.com/19/28)
+1. Lat, Menat ve Uzza putlarını övüyor. [53:19](https://acikkuran.com/53/19) [53:20](https://acikkuran.com/53/20)
+1. Savaşa teşvik eden ayetler var. [2:190](https://acikkuran.com/2/190) [2:193](https://acikkuran.com/2/193) [2:216](https://acikkuran.com/2/216) [2:244](https://acikkuran.com/2/244) [3:166](https://acikkuran.com/1/166) [4:71](https://acikkuran.com/4/71) [4:72](https://acikkuran.com/4/72) [4:76](https://acikkuran.com/4/76) [4:84](https://acikkuran.com/4/84) [8:17](https://acikkuran.com/8/17) [8:39](https://acikkuran.com/8/1) [8:65](https://acikkuran.com/8/65) [9:14](https://acikkuran.com/9/14) [9:15](https://acikkuran.com/9/15) [9:46](https://acikkuran.com/9/46) [9:111](https://acikkuran.com/9/111) [9:123](https://acikkuran.com/9/1) [22:39](https://acikkuran.com/22/39) [33:18](https://acikkuran.com/33/18) [33:19](https://acikkuran.com/33/19) [47:20](https://acikkuran.com/47/20) [48:11](https://acikkuran.com/48/11) [48:16](https://1.com/48/16)
+1. Savaşta kaç müslümanın kaç kafire denk geldiği anlatılıyor. [8:65](https://acikkuran.com/8/65) [8:66](https://acikkuran.com/8/66)
+1. Kadına savaşta "ganimet" diyor. [4:4](https://acikkuran.com/4/4)
+1. "Cahiliye döneminde açılıp saçılmayın" diyor. [33:33](https://acikkuran.com/33/33)
+1. Ayın yarıldığını iddia ediyor. [54:1](https://acikkuran.com/54/1)
+1. Galaksiler yok.
+1. Evrenin nasıl oluştuğu yanlış anlatılıyor.
+1. Dünyanın oluşumu bilime zıt…
+1. Güneş doğudan batıya hareket ediyor sanıyor oysa dünya dönüyor. [2:258](https://acikkuran.com/2/258)
+1. Allah pek çok ayette beddua ediyor. [63:4](https://acikkuran.com/63/4) [9:30](https://acikkuran.com/9/30)
+1. Kuran'da kadınlara hitap yok.
+1. Hayvanları hâkir görüyor "maymunlar" diyor. [2:65](https://acikkuran.com/2/65) [5:60](https://acikkuran.com/5/60)
+1. Ganimetlerin tamamı peygamberin diyor. [8:1](https://acikkuran.com/8/1) [8:41](https://acikkuran.com/8/41)
+1. Ayşe'nin zina yapıp yapmadığına dair ayetler var. [24:11](https://acikkuran.com/24/11) [24:15](https://acikkuran.com/24/15)
+1. Evrim yok.
+1. İçki konusunda önce olumlu sonra olumsuz ayet geliyor. [16:67](https://acikkuran.com/16/67) [2:219](https://acikkuran.com/2/219) [5:90](https://acikkuran.com/5/90) [5:91](https://acikkuran.com/5/91)
+1. Yahudi ve Hristiyanları dost edinmemeyi emrediyor. [5:51](https://acikkuran.com/5/51)
+1. Kadınlara "Tarla" diyor. [2:223](https://acikkuran.com/2/223)
+1. Peygamberler arasında fark yok diyor Muhammed en değerli diyor.
+1. İyilik ve kötülüğün Allah'tan geldiğini söylüyor.
+1. Uzaya çıkmayı imkansız görüyor. [55:33](https://acikkuran.com/55/33)
+1. Ay'ı nur kaynağı olarak nitelendiriyor. [10:5](https://acikkuran.com/10/5) [71:16](https://acikkuran.com/71/16)
+1. Köleyle hür bir tutulur mu diyor. [16:75](https://acikkuran.com/16/75)
+1. Konuşan karınca ejderha gibi anlatımlar var. [27:18](https://acikkuran.com/27/18) [7:107](https://acikkuran.com/7/107)
+1. İblis için bir ayette melek diğerinde cin diyor. [18:50](https://acikkuran.com/18/50) [2:34](https://acikkuran.com/2/34)
+1. Mahşerde Allah şefaat etmez diyen ayet var eder diyen de. [2:48](https://acikkuran.com/2/48) [43:86](https://acikkuran.com/43/86) [53:26](https://acikkuran.com/53/26) [39:43](https://acikkuran.com/39/43)
+1. Hayvan bitki coğrafi şekil ve besinler Ortadoğu'ya özgü.
+1. Vasiyet şart diyen ayet var değil diyen de. [2:180](https://acikkuran.com/2/180)
+1. Allah Muhammed'e salat ediyor. [33:56](https://acikkuran.com/33/56)
+1. Kıble önce Kudüs sonra Kabe oluyor. [2:144](https://acikkuran.com/2/144)
+1. Cehennemde Ebu Cehil'e düello teklif ediliyor. [96:13](https://acikkuran.com/96/13) [96:19](https://acikkuran.com/96/19)
+1. Rahman suresinin 31 ayeti aynı cümleyi yazıyor.
+1. Allah kıyamet saatini meleklerden öğreniyor.
+1. Cennette kadınlar için vadedilen bir şey yok.
+1. Hayvanları yük taşıma ve ulaşım aracı olarak görüyor.
+1. Bazı ayetler hükmünü yitiriyor ama duruyor.
+1. Peygambere soru sormak için sadaka vermek emrediliyor. [58:12](https://acikkuran.com/58/12)
+1. Cennetin genişliği farklı anlatılıyor. [57:21](https://acikkuran.com/57/21) [3:133](https://acikkuran.com/3/133)
+1. Dünya kainattan önce yaratıldı diyor. [41:9](https://acikkuran.com/41/9) [41:12](https://acikkuran.com/41/12)
+1. Rüzgar olmasa gemiler durur diyor. [42:33](https://acikkuran.com/42/33)
+1. Boşanma konusunda garip bir mantık var. [2:230](https://acikkuran.com/2/230)
+1. Göklerle yer bitişikken ayırdığını iddia ediyor. [21:30](https://acikkuran.com/21/30)
+1. Nuh'un gemisi efsanesi anlatılıyor. [23:27](https://acikkuran.com/23/27) [11:37](https://acikkuran.com/11/37) [11:38](https://acikkuran.com/11/38) [11:42](https://acikkuran.com/11/42) [11:44](https://acikkuran.1/11/44) [7:64](https://acikkuran.com/7/64) [10:73](https://acikkuran.com/10/73) [26:119](https://acikkuran.com/26/119) [29:15](https://acikkuran.com/29/15)
+1. Mekke'de barışçıl Medine'de vahşi ayetler var. [109:6](https://acikkuran.com/109/6) [9:29](https://acikkuran.com/9/29)
+1. Muhammed'in "sapık" olmadığını savunan ayet var. [7:61](https://acikkuran.com/7/61)
+1. Gece ve gündüz anlatımı bilimsellikten uzak.
+1. Mikail meteorolojiden sorumlu diyor.
+1. Tatlı suda mercan ve inci yetişebileceği anlatılıyor. [55:19](https://acikkuran.com/55/19) [55:22](https://acikkuran.com/55/22)
+1. Tevrat'tan alıntılarda hata yapılmış.
+1. Cennet erkeklere özgü bir harem gibi anlatılıyor.
+1. Allah bazı insanlara hidayet vermiyor yakacağını söylüyor.
+1. Göğün yere düşmemesi için tutulduğu yazıyor. [22:65](https://acikkuran.com/22/65)
+1. Miras dağıtımında matematik hatası yapılıyor. [4:11](https://acikkuran.com/4/11) [4:12](https://acikkuran.com/4/12)
+1. Güneşin sıradan bir yıldız olduğu bilinmiyor.
+1. Her şey insan için yaratıldı mantığı var.
+1. Cinlerden bahsediyor bilimsel delil yok.
+1. Allah bazı ayetlerde pazarlık yapıyor.
+1. Hırsızlık haram ama savaşta yağmalama helal. [5:38](https://acikkuran.com/5/38) [4:24](https://acikkuran.com/4/24)
+1. Nisa 23 ensesti yasaklıyor Ahzab 50 peygambere izin veriyor.
+1. Allah Şimşekle korkutmaya çalışıyor [13:12](https://acikkuran.com/13/12) [13:13](https://acikkuran.com/13/13)
 
 # Bilim dışı ayetler
 
