@@ -661,6 +661,6 @@ Nitekim;
 
 Tabii.­.. Hayvanlar arasında güçlü veya önder olanın önünde başını yere eğme figürü, senin gücünü kabul ettim manasına gelmektedir. Homo sapiens'in (İlk İnsanların – 200 bin yıl önce) oluşumundan bu yana ve/veya tarıma geçiş (∼10 bin yıl önce) öncesinde ve sonrasında insanlar anne-babalarının önünde, grup liderine, krallara, firavunlara, hükümdarlara veya tanrılara saygı mahiyetinde alnını yere değdirerek eğilme olarak yapılan tavırlar tabii ki namazın gerçek kökenidir. Bununla beraber veya sonrasında İslam dininden önce, namaz benzeri Tanrılara dua etme Sümer-Babil-Mısır külliyatında da var olmakla birlikte, MÖ 1500'lerde Hinduizm'de Surya Namaskar olarak Güneş Tanrısı'na yapılan namaz benzeri ibadet, MÖ 300'lerde Sabiilerdeki kuzeye dönülüp günde 7 kere yapılan namaz benzeri ibadet namazın oluşumunda etkili olmuştur diyebiliriz. Bu sayılanlar arasında Hinduizm inançlarının namaza etkisi daha fazla gibi gözükmektedir.
 
-## İlgili Kur'an ayeti
+## İlgili Kuran ayeti
 
 > Namazı bitirdiğinizde, Allah'ı ayaktayken, otururken ve yan yatarken zikredin. Artık ‘güvenliğe kavuşursanız' namazı dosdoğru kılın. Çünkü namaz, mü'minler üzerinde vakitleri belirlenmiş bir farzdır. Nisa-103
