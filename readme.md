@@ -239,19 +239,18 @@ Zariyat-49 ayetine göre her canlı çift (erkekli dişili) yaratılmıştır oy
 Rahman-14 ayetine göre Allah insanı pişmiş çamur gibi bir balçıktan yaratmıştır. "Canlılık" değil sadece "insan" sözcüğü kullanılması evrim teorisine terstir. İnsan çamurdan yaratılmamıştır. Halbuki benzer bir hayvanın DNA'sı üzerinde yapacağı değişiklikle insanı yaratması daha bilimsel olmaz mıydı?
 
 > "Allah, insanı pişmiş çamur gibi bir balçıktan yarattı." [55:14](https://acikkuran.com/55/14)
-> 
+
 ## Ölünün diriltilmesi
 
 Ölünün diriltilmesi bilim dışı sözde mucizedir.
 
 > "'Sığırın bir parçası ile öldürülene vurun' dedik. (Denileni yaptılar ve ölü dirildi.) İşte, Allah ölüleri böyle diriltir, düşünesiniz diye mucizelerini de size böyle gösterir." [2:73](https://acikkuran.com/2/73)
-> 
+ 
 ## Denizin yarılması
 
 Denizin yarılması bilim dışı sözde mucizedir.
 
 > "Hani, sizin için **denizi yarmış**, sizi kurtarmış..." [2:50](https://acikkuran.com/2/50)
-
 
 ## Ay'ın yarılması
 
@@ -303,7 +302,6 @@ Yunus-5 ayetinde Ay'ın ışık kaynağı olduğu yazıyor fakat Ay'ın bir nur 
 Kadir-3 ayetinde bir gecenin bin aydan (bir ömür) daha hayırlı olduğu yazar. Sadece bir gece bir insan ömründen nasıl daha hayırlı olabilir?
 
 > "Kadir Gecesi bin aydan daha hayırlıdır!" [97:3](https://acikkuran.com/97/3)
-
 
 ## Tatlı suda inci ve mercan yetiştiği
 
