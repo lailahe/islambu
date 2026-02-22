@@ -586,7 +586,7 @@ Tabii.­.. Hayvanlar arasında güçlü veya önder olanın önünde başını y
 1. Kelle kesmeyi emrediyor. [47:4](https://acikkuran.com/47/4)
 1. Nerede bulursanız öldürün diyor. [2:191](https://acikkuran.com/2/191)
 1. Sadece Muhammed'e özel kadınlar listesi var. [33:50](https://acikkuran.com/33/50)
-1. Kadının cariye olmasına onay veriyor. [70:30](https://acikkuran.com/70/30) [4:24](https://acikkuran.com/4/24) [4:25](https://acikkuran.com/4/25) [23:6](https://acikkuran.com/23/6) [24:33](https://acikkuran.com/1/33)
+1. Cariyelik yasak değil: [4:24](https://acikkuran.com/4/24), [4:25](https://acikkuran.com/4/25), [23:6](https://acikkuran.com/23/6), [24:32](https://acikkuran.com/24/32), [24:33](https://acikkuran.com/24/33), [33:50](https://acikkuran.com/33/50), [33:52](https://acikkuran.com/33/52), [33:55](https://acikkuran.com/33/55), [70:30](https://acikkuran.com/70/30)
 1. Ayetlerin bazılarında anlatım bozuklukları var.
 1. Anlayasınız diye Arapça indirdik deniliyor. [12:2](https://acikkuran.com/12/2)
 1. "Mekke ve civarı için indirdik" diyen ayet var. [6:92](https://acikkuran.com/6/92)
@@ -594,7 +594,6 @@ Tabii.­.. Hayvanlar arasında güçlü veya önder olanın önünde başını y
 1. Peygamberin evinden misafir kovma ayeti var. [33:53](https://acikkuran.com/33/53)
 1. Peygamber evlatlığı Zeyd'in karısını alıyor. [33:37](https://acikkuran.com/33/37)
 1. Evlenme yaşı için sınır yok.
-1. Sınırsız cariye helal. [23:6](https://acikkuran.com/23/6) [24:32](https://acikkuran.com/24/32) [24:33](https://acikkuran.com/24/33) [33:50](https://acikkuran.com/33/50) [33:52](https://acikkuran.com/33/52) [1:55](https://acikkuran.com/33/55) [70:30](https://acikkuran.com/70/30)
 1. Ayetleri sorgulamayın diye ayet var. [5:101](https://acikkuran.com/5/101)
 1. Zina ve içkiyi ahirette ödül olarak anlatıyor. [2:219](https://acikkuran.com/2/219) [5:90](https://acikkuran.com/5/90) [5:91](https://acikkuran.com/5/91) [10:4](https://acikkuran.com/10/4) [16:67](https://1.com/16/67) [2:25](https://acikkuran.com/2/25) [3:15](https://acikkuran.com/3/15) [44:54](https://acikkuran.com/44/54) [52:20](https://acikkuran.com/52/20) [55:72](https://acikkuran.com/55/72) [56:23](https://acikkuran.com/56/23) [78:33](https://acikkuran.com/78/33) [78:34](https://acikkuran.com/78/34)
 1. Eşcinselleri lanetliyor. [4:15](https://acikkuran.com/4/15) [4:16](https://acikkuran.com/4/16) [7:80](https://acikkuran.com/7/80) [7:81](https://acikkuran.com/7/81) [15:71](https://acikkuran.com/15/71) [26:165](https://acikkuran.com/26/165) [27:55](https://acikkuran.com/27/55)
