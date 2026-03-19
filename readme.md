@@ -394,7 +394,7 @@ Rad-12-13 ayetlerinde gök gürültüsü, şimşek ve yıldırım Allah'ın insa
 > "Gök gürlemesi O'na hamd ederek tespih eder. Melekler de O'nun korkusundan tespih ederler. O, yıldırımlar gönderir de onlarla dilediğini çarpar. Onlar ise Allah hakkında mücadele ediyorlar. Halbuki O, azabı çok şiddetli olandır." [13:13](https://acikkuran.com/13/13)
 
 > [!Caution]
-> Şimşek çakınca insanlar korkar, ancak ekinlerin yetişmesi için yağacak yağmur için umutlanırlar. Bu
+> Şimşek çakınca insanlar korkar, ancak ekinlerin yetişmesi için yağacak yağmur için umutlanırlar.
 > 
 > Paratonerler yeryüzünü tamamen güvence altına mı almıştır? Aldıysa neden hala insanlar yıldırımlar ile çarpılmaktadır? 
 
