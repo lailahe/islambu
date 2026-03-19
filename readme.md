@@ -374,6 +374,11 @@ Eski çağlarda kalp düşünme organı sanıldığı için ayetlerde duygular, 
 
 > "...senin **kalbine** apaçık Arapça bir dil ile indirmiştir." [26:195](https://acikkuran.com/26/195)
 
+> [!Caution]
+> Anma organı dildir, beyne birşey inmez, beyin günahkâr olmaz insan günâhkâr olur. Bu iddiada tüm bu mecaz kullanımlar gözardı edilip sadece "kalp" somut algılanarak bir sonuca varılmıştır.
+> 
+> Ayette kalpten, insanın manevi boyutunun kast edildiği açıktır.
+
 ## Yıldırım ile korkutan Allah
 
 Rad-12-13 ayetlerinde gök gürültüsü, şimşek ve yıldırım Allah'ın insanları korkutma aracı olarak anlatılıyor. Bu bilimsel bir çelişkidir. Ayrıca Allah'ın paratonerden haberi yok muydu?
@@ -381,6 +386,11 @@ Rad-12-13 ayetlerinde gök gürültüsü, şimşek ve yıldırım Allah'ın insa
 > "O, korku ve ümit vermek için size şimşeği gösterendir, yağmur yüklü bulutları meydana getirendir." [13:12](https://acikkuran.com/13/12)
 
 > "Gök gürlemesi O'na hamd ederek tespih eder. Melekler de O'nun korkusundan tespih ederler. O, yıldırımlar gönderir de onlarla dilediğini çarpar. Onlar ise Allah hakkında mücadele ediyorlar. Halbuki O, azabı çok şiddetli olandır." [13:13](https://acikkuran.com/13/13)
+
+> [!Caution]
+> Şimşek çakınca insanlar korkar, ancak ekinlerin yetişmesi için yağacak yağmur için umutlanırlar. Bu
+> 
+> Paratonerler yeryüzünü tamamen güvence altına mı almıştır? Aldıysa neden hala insanlar yıldırımlar ile çarpılmaktadır? 
 
 ## Her canlının çift yaratıldığı
 
@@ -400,22 +410,34 @@ Rahman-14 ayetine göre Allah insanı pişmiş çamur gibi bir balçıktan yarat
 Ölünün diriltilmesi bilim dışı sözde mucizedir.
 
 > "'Sığırın bir parçası ile öldürülene vurun' dedik. (Denileni yaptılar ve ölü dirildi.) İşte, Allah ölüleri böyle diriltir, düşünesiniz diye mucizelerini de size böyle gösterir." [2:73](https://acikkuran.com/2/73)
- 
+
+> [!Caution]
+> Mucizeler doğa üstü, evrenin genel işleyişine aykırı olaylardır. Eğer bilimsel olarak mümkün olsalar mucize olmazlardı.
+
 ## Denizin yarılması
 
 Denizin yarılması bilim dışı sözde mucizedir.
 
 > "Hani, sizin için **denizi yarmış**, sizi kurtarmış..." [2:50](https://acikkuran.com/2/50)
 
+> [!Caution]
+> Denizin yarılması da ölünün diriltilmesi gibi mucizedir.
+
 ## Ay'ın yarılması
 
 > "Kıyamet yaklaştı ve **ay yarıldı**." [54:1](https://acikkuran.com/54/1)
+
+> [!Caution]
+> Ay'ın yarılması da ölünün diriltilmesi gibi mucizedir.
 
 ## Katırın yaratılışı
 
 Katır, erkek eşek (merkep) ile dişi atın (kısrak) çiftleşmesiyle meydana gelen ve çoğu kez kısır olan melez hayvandır fakat Nahl-8 ayetinde üçünün de ayrı ayrı yaratıldığı iddia edilir.
 
 > "Hem binesiniz diye, hem de süs olarak atları, katırları ve merkepleri de yarattı. Bilemeyeceğiniz daha nice şeyleri de yaratır." [16:8](https://acikkuran.com/16/8)
+
+> [!Caution]
+> Katır, eşek ve atın çiftleşmesiyle oluştuğu için yaratılmamıştır şeklinde hatalı bir mantık kurulmuştur. Bu başlık altında iddia edilenin aksine, eşek ve atın yaratma gücü yoktur. :)
 
 ## Hayvanların 8 çift olması
 
@@ -427,6 +449,18 @@ Aşağıdaki ayetlerde açıklanıyor hangileri olduğu:
 > "O, hayvanlardan sekiz eşi de yaratandır, koyundan iki, keçiden de iki." [6:143](https://acikkuran.com/6/143)
 
 > "Deveden bir çift sığırdan da..." [6:144](https://acikkuran.com/6/144)
+
+> [!Caution] 
+> Arap müşriklerinin batıl inançlarından biri, hayvanların etlerini “erkek veya dişi olmalarına” göre helâl veya haram saymak ve karınlarındaki yavrular üzerinden mülkiyet iddia etmekti (En’am 6:139):  
+> > "Şu hayvanların karınlarındaki yavrular (canlı olursa) sırf erkeklerimize aittir. Karılarımıza ise haramdır. Eğer ölü olursa, onda hepsi ortaktırlar."
+>
+> Kur’an-ı Kerim, bu yanlış inancı düzeltmek için hayvanlardan “sekiz eş'e” vurgu yapar (Neml 39:6). En’am Suresi 6:143-144 ayetlerinde bu sekiz çift açıkça sayılmıştır:  
+> - Koyundan iki çift  
+> - Keçiden iki çift  
+> - Deveden iki çift  
+> - Sığırdan iki çift
+>
+> Ayetler, hayvanların erkek veya dişi olmalarının, doğmuş bulunmalarının veya rahimlerindeki yavruların etlerinin helâl/haram olmasının mantıksız olduğunu vurgular.
 
 ## Şeytana atılan kandiller
 
