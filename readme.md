@@ -470,6 +470,9 @@ Mülk-5 ayetinde yıldızların şeytanlar için atış tanesi olduğu yazar, bu
 
 Kandille kastedilen yıldız. Ama sanki yıldızın ne olduğu bilinmiyor. Boyutları küçük sanılıyor. Güneş ile yıldızlar farklı düşünülüyor. Koca yıldız, belki de dünyanın 30-40 misli büyüklüğünde, ama ayette şeytanlara atış tanesi olarak yapıldığını söylüyor.
 
+> [!Caution]
+> Ayette yıldızların boyutu hakkında bilgi verilmiyor. Yıldızların küçük olduğu çıkarımı, iddia sahibinin uydurmasıdır. Şeytan, gözle görebildiğimiz maddi bir varlık değildir. Dolayısıyla yıldızların şeytanlar için nasıl atış taneleri yapıldığı konusunda bir yorum yapmak mümkün değildir.
+
 ## Savaşçı Melekler
 
 Savaşta Müslümanlara melek ordusuyla destek veriliyormuş. Melek ordusu bilim dışıdır. Kazanılan savaşta melekler yardım etmişken mağlup olunan savaşta yardımcı olmamışlar? Zafer meleklerden, yenilgi ise insanların hatasından. Diğer ileri zamanlarda da melek ordusuna ihtiyaç var fakat Allah umursamamış.
@@ -479,6 +482,9 @@ Savaşta Müslümanlara melek ordusuyla destek veriliyormuş. Melek ordusu bilim
 > "Evet, sabrettiğiniz ve Allah'a karşı gelmekten sakındığınız takdirde; onlar ansızın üzerinize gelseler bile Rabbiniz nişanlı beş bin melekle size yardım eder." [3:125](https://acikkuran.com/3/125)
 
 > "Onların (müşriklerin) başına (Bedir'de) iki mislini getirdiğiniz bir musibet (Uhud'da) sizin başınıza geldiğinde, "Bu, nereden başımıza geldi?" dediniz, öyle mi? De ki: "O (musibet), kendinizdendir." Şüphesiz Allah'ın gücü her şeye hakkıyla yeter." [3:165](https://acikkuran.com/3/165)
+
+> [!Caution]
+> İslâm, meleklerin gözle görülen, çarşı pazarda gezen yada bilimsel deneylerle ispatlanabilen canlılar olduğunu iddia etmemiştir. Melekler ruhani varlıklardır. Maddenin üzerinde olan bu varlıkların nasıllığı bilinmediği için onların yardımının nasıl yapıldığı da bilinemez. Melekler her savaşta zafer getirme sözü vermemiştir. Uhud yenilgisinin temel nedeni, okçuların itaati terk etmesidir.
 
 ## Ay'ın nur olduğu
 
