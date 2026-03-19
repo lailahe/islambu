@@ -357,6 +357,11 @@ Yere göre Güneş'in hareket ettiğini sanır, doğuda bir yerden doğup batıd
 
 Ayetten Dünya'yı göğün altında uçsuz bucaksız bir yer olarak gören ve göz yanılmasından dolayı güneşin dünyanın batısında bir çamur gözesine battığını sanan bir yanlış bilgiye sahip olunduğu anlaşılmaktadır. Bu ayet, İslamcılar tarafından güneşin sanki okyanusta batıyormuş gibi görünmesi olarak açıklanmaya çalışılır. Öyle olsa, ayette "sanki" sözcüğü olurdu ama yoktur ve bazı mealciler bu sözcüğü parantez içinde ayete ekler.
 
+> [!Caution]
+> Bu iddia, yanlış analoji hatası içerir. Güneşin batışının tasviri gerçek bir yer gibi algılanmıştır. Güneşin batışını ve doğuşunu çoğunlukla "Güneş ufukta battı, Dağların arasından yükseldi, Denize battı." şeklinde betimleriz.
+> 
+> Ayette sanki yazmasına gerek yoktur çünkü ortalama zekâya sahip her insan bunun bir betimleme olduğunu anlayabilir. Güneşin okyanusta batışını da betimlerken, güneş sanki okyanusta battı şeklinde cümle kurulmaz.
+
 ## Kalbin düşünme organı sanılması
 
 Eski çağlarda kalp düşünme organı sanıldığı için ayetlerde duygular, düşünceler, inançlar kalpteymiş gibi anlatılmış. Osya kalp kan basıncını düzenleyen bir organdır.
