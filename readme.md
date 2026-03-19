@@ -288,6 +288,9 @@ Yaratanların en iyisi Allah'sa diğer yaratanlar kim?
 
 Kur'an'da Musevilerden Yahudi diye bahsediliyor. Halbuki o dönemde Yahudi olduğu halde Hristiyan olanlar çok. Madem ki "Hristiyan" yani "İsacı" diyor, "Musevi" yani "Musacı" da denebilirdi. Bu genelleme yanlıştır. Günümüzde de Yahudi olanlar içinde ateisti, dinsizi, Hristiyanı, Müslümanı, Budisti vardır.
 
+> [!Caution]
+> “Yahudi” kelimesi, İbranice Yehuda adından türetilmiş olup, hem kabile kökeni hem de dini aidiyeti ifade eder. Günümüzde de Yahudi kelimesi sık sık dini aidiyeti belirtmek amacıyla kullanılmaktadır.
+
 ## İnananlar Muhammed'in kulu mu?
 
 Zümer-10 ayetine bakalım
@@ -299,6 +302,9 @@ Ayet, "De ki ey inanan kullarım" ile başlıyor. Muhammed, inananlara "kulları
 Aynı ifadeyi Zümer-53′de de görmekteyiz:
 
 > De ki: "Ey kendilerinin aleyhine aşırı giden kullarım! Allah'ın rahmetinden ümidinizi kesmeyin. Şüphesiz Allah, bütün günahları affeder. Çünkü O, çok bağışlayandır, çok merhamet edendir." [39:53](https://acikkuran.com/39/53)
+
+> [!Caution]
+> Hz. Muhammed(sav)'e Allah'ın buyruğunu söylemesi (De ki) emredilmektedir. Bu ayetlerden Muhammed(sav)'in kulu manası çıkmaz.
 
 ## Cehennem'in yemeği
 
