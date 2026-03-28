@@ -97,7 +97,7 @@ Allah'ın her şeyi bildiğini söyleyen bir sürü ayet olmasına rağmen Sebe-
 
 Sad-75 ayetinde Allah İblis'e soru soruyor.
 
-> Allah, "Ey İblis! Ellerimle yarattığıma saygı ile eğilmekten **seni ne alıkoydu? Büyüklük mü tasladın, yoksa üstünlerden mi oldun?**" dedi.
+> Allah, "Ey İblis! Ellerimle yarattığıma saygı ile eğilmekten **seni ne alıkoydu? Büyüklük mü tasladın, yoksa üstünlerden mi oldun?**" dedi. [38:75](https://acikkuran.com/38/75)
 
 Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
 
