@@ -3,6 +3,7 @@
   - [Kötülük kimden gelir?](#kötülük-kimden-gelir)
   - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
   - [Cennete gidebilir mi gidemez mi?](#cennete-gidebilir-mi-gidemez-mi)
+  - [Tevbe bir defa mı iki defa mı?](#tevbe-bir-defa-mı-iki-defa-mı)
   - [İlk Müslüman](#i̇lk-müslüman)
   - [Muhammed'in gafları](#muhammedin-gafları)
   - [İblis melek mi cin mi?](#i̇blis-melek-mi-cin-mi)
@@ -117,6 +118,15 @@ Yahudiler, Sabiiler ve Hıristiyanlar cennete gidebilirler mi?
 
     > "Yahudiler, "Üzeyr, Allah'ın oğludur" dediler. Hristiyanlar ise, "İsa Mesih, Allah'ın oğludur" dediler. Bu, onların ağızlarıyla söyledikleri (gerçeği yansıtmayan) sözleridir. Onların bu sözleri daha önce inkar etmiş kimselerin söylediklerine benziyor. Allah, onları kahretsin. Nasıl da haktan çevriliyorlar!" [9:30](https://acikkuran.com/9/30)
 
+## Tevbe bir defa mı iki defa mı?
+
+Ali İmran-90 ayetinde sadece bir defa inkar edip tevbe edenlerden söz edilirken Nisa-137 ayetinde ise iki defa iman edip sonra inkar edenlerden söz edilir. Dolayısıyla burada bir defa mı iman edip inkar edenler yoksa iki defa mı iman edip sonra inkar edenler çelişkisi ortaya çıkıyor.
+
+- Bir defa iman
+    > Şüphesiz iman ettikten sonra inkar eden, sonra da inkarda ileri gidenlerin tövbeleri asla kabul edilmeyecektir. İşte onlar sapıkların ta kendileridir. [3:90](https://acikkuran.com/3/90)
+- İki defa iman
+    > İman edip sonra inkar eden, sonra inanıp tekrar inkar eden, sonra da inkarlarında ileri gidenler var ya; Allah, onları bağışlayacak da değildir, doğru yola iletecek de değildir. [4:137](https://acikkuran.com/4/137)
+
 ## İlk Müslüman
 
 *Enam-163*'e göre **Muhammed**. *Araf-143*'e göre **Musa**. *Ali İmran-67*'ye göre **İbrahimdir** (İbrahim tarih olarak Muhammed'den önce yaşadı).
@@ -144,7 +154,6 @@ Aşağıdaki ayetlerde Kur'an'ı yazanın bir insan olduğu açıkça belli oluy
 Enam-114'te Diyanet çevirisi fazladan (de) eklemiş, Arapçasında yok.
 
 > "Size Kitab'ı hak olarak indiren o iken ben Allah'tan başka bir hakem mi arayacağım?" (de). Kendilerine kitap verdiklerimiz de onun, Rabbin katından hak olarak indirilmiş olduğunu bilirler. O halde, sakın şüphecilerden olma." [6:114](https://acikkuran.com/6/114)
-
 
 ## İblis melek mi cin mi?
 
