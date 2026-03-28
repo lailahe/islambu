@@ -1,19 +1,17 @@
 - [Çelişkili ayetler](#çelişkili-ayetler)
   - [Hesap günü aracılık](#hesap-günü-aracılık)
   - [Kötülük kimden gelir?](#kötülük-kimden-gelir)
-  - [Yerel iklim](#yerel-iklim)
-  - [Cennete gidiş](#cennete-gidiş)
+  - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
+  - [Cennete gidebilir mi gidemez mi?](#cennete-gidebilir-mi-gidemez-mi)
   - [İlk Müslüman](#i̇lk-müslüman)
   - [Muhammed'in gafları](#muhammedin-gafları)
   - [İblis melek mi cin mi?](#i̇blis-melek-mi-cin-mi)
-  - [Allah her şeyi bilir mi?](#allah-her-şeyi-bilir-mi)
   - [Salat eden Allah](#salat-eden-allah)
   - [Ayetler değişken mi değil mi?](#ayetler-değişken-mi-değil-mi)
   - [Kur'an apaçık mı?](#kuran-apaçık-mı)
   - [Allah'ın ganimeti](#allahın-ganimeti)
   - [Peygamberler eşit mi?](#peygamberler-eşit-mi)
   - [Kur'an kime indi?](#kuran-kime-indi)
-  - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
   - [Allah'ın yemini](#allahın-yemini)
   - [Sövmeyin diyip söven Allah](#sövmeyin-diyip-söven-allah)
   - [Allah'ın velileri](#allahın-velileri)
@@ -91,13 +89,23 @@ Kötülük Allah'tan mı gelir kendinden mi?
 - Kendinden;
     > "Sana ne iyilik gelirse Allah'tandır. Sana ne **kötülük gelirse kendindendir**. (Ey Muhammed!) Seni insanlara bir peygamber olarak gönderdik. Şahit olarak Allah yeter." [4:79](https://acikkuran.com/4/79)
 
-## Yerel iklim
+## Her şeyi bilmeyen Allah
 
-Kur'an'da sadece Orta Doğu'ya özgü meyvelerden ve iklim özelliklerinden bahsedilmesi evrensel bir tanrı anlayışı ile çelişir.
+Allah'ın her şeyi bildiğini söyleyen bir sürü ayet olmasına rağmen Sebe-40'ta kimin neye taptığını meleklere soruyor.
 
-## Cennete gidiş
+> "Onların hepsini toplayacağı gün, Allah meleklere, '**Bunlar mı size tapıyorlardı?**' diye **sorar**." [34:40](https://acikkuran.com/34/40)
 
-Yahudiler, Sabiiler ve Hristiyanlar cennete gidebilecek mi?
+Sad-75 ayetinde Allah İblis'e soru soruyor.
+
+> Allah, "Ey İblis! Ellerimle yarattığıma saygı ile eğilmekten **seni ne alıkoydu? Büyüklük mü tasladın, yoksa üstünlerden mi oldun?**" dedi.
+
+Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
+
+> Şimdi ise, Allah yükünüzü hafifletti ve sizde muhakkak bir zaaf olduğunu bildi. Eğer içinizde sabırlı yüz kişi olursa iki yüz kişiye galip gelirler. Eğer içinizde (sabırlı) bin kişi olursa, Allah'ın izniyle iki bin kişiye galip gelirler... [8:66](https://acikkuran.com/8/66)
+
+## Cennete gidebilir mi gidemez mi?
+
+Yahudiler, Sabiiler ve Hıristiyanlar cennete gidebilirler mi?
 
 - Gidebilir diyen ayetler;
     > "Şüphesiz, inananlar (Müslümanlar) ile Yahudiler, Hristiyanlar ve Sabiilerden (her bir grubun kendi şeriatında) "Allah'a ve ahiret gününe inanan ve salih ameller işleyenler için Rableri katında mükafat vardır; onlar korkuya uğramayacaklar, mahzun da olmayacaklardır" (diye hükmedilmiştir)." [2:62](https://acikkuran.com/2/62)
@@ -145,11 +153,6 @@ Enam-114'te Diyanet çevirisi fazladan (de) eklemiş, Arapçasında yok.
 > "Hani **meleklere**, "Âdem için saygı ile eğilin" demiştik de **İblis hariç bütün melekler** hemen saygı ile eğilmişler..." [2:34](https://acikkuran.com/2/34)
 
 > "Hani biz meleklere, 'Adem için saygı ile eğilin' demiştik de İblis'ten başka hepsi saygı ile eğilmişlerdi. **İblis ise cinlerdendi**..." [18:50](https://acikkuran.com/18/50)
-
-
-## Allah her şeyi bilir mi?
-
-Enfal-65'te Müslümanlar 10 katı sayıda düşmanı yenerken "Allah yükü hafifletti ve sizde bir zaaf olduğunu bildi" diyerek Enfal-66'da Allah 2 kat düşmanı yenebileceklerini söylüyor. Allah duruma göre fikir değiştiriyor.
 
 > "Ey Peygamber! Müminleri cihada teşvik eyle. **Eğer sizden sabredecek yirmi kişi olursa ikiyüze galip gelirler ve eğer sizden yüz kişi olursa kafirlerden bin kişiye galip gelirler.** Çünkü onlar hakkı ve akıbeti düşünmeyen anlayışsız bir kavimdirler." [8:65](https://acikkuran.com/8/65)
 
@@ -217,12 +220,6 @@ Kur'an şehirlerin anası ve çevresindekilere mi yoksa tüm alemlere mi indi? E
 > "İşte bu, önündekileri doğrulayıcı ve şehirlerin anası ile çevresindekileri uyarman için indirdiğimiz kutlu Kitaptır..." [6:92](https://acikkuran.com/6/92)
 
 > "Halbuki o (Kur'an) bütün akıllı alemler için bir öğüttür." [68:52](https://acikkuran.com/68/52)
-
-## Her şeyi bilmeyen Allah
-
-Allah'ın her şeyi bildiğini söyleyen bir sürü ayet olmasına rağmen Sebe-40'ta kimin neye taptığını meleklere soruyor.
-
-> "Onların hepsini toplayacağı gün, Allah meleklere, '**Bunlar mı size tapıyorlardı?**' diye **sorar**." [34:40](https://acikkuran.com/34/40)
 
 ## Allah'ın yemini
 
