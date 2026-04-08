@@ -3,6 +3,7 @@
   - [Kötülük kimden gelir?](#kötülük-kimden-gelir)
   - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
   - [Cennete gidebilir mi gidemez mi?](#cennete-gidebilir-mi-gidemez-mi)
+  - [İslam Arap dini mi?](#i̇slam-arap-dini-mi)
   - [Tevbe bir defa mı iki defa mı?](#tevbe-bir-defa-mı-iki-defa-mı)
   - [İlk Müslüman](#i̇lk-müslüman)
   - [Muhammed'in gafları](#muhammedin-gafları)
@@ -117,6 +118,28 @@ Yahudiler, Sabiiler ve Hıristiyanlar cennete gidebilirler mi?
     > "Kim İslam'dan başka bir din ararsa, (bilsin ki o din) ondan kabul edilmeyecek ve o ahirette hüsrana uğrayanlardan olacaktır." [3:85](https://acikkuran.com/3/85)
 
     > "Yahudiler, "Üzeyr, Allah'ın oğludur" dediler. Hristiyanlar ise, "İsa Mesih, Allah'ın oğludur" dediler. Bu, onların ağızlarıyla söyledikleri (gerçeği yansıtmayan) sözleridir. Onların bu sözleri daha önce inkar etmiş kimselerin söylediklerine benziyor. Allah, onları kahretsin. Nasıl da haktan çevriliyorlar!" [9:30](https://acikkuran.com/9/30)
+
+## İslam Arap dini mi?
+
+Bazı ayetler bütün insanlığa gönderildi derken bazıları Araplara özel ayetlerdir. Ayrıca Fussilet-44 ayetinde Allah önce dile karar verip sonra o dili konuşan peygamberi ve kavmi seçebilirdi, sanki Arap olmak öncelikli dilde ona göre seçilmiş gibi.
+
+- Araplara özel;
+    > "Biz, ***anlayasınız diye Arapça*** bir Kur'an yaptık." [43:3](https://acikkuran.com/43/3)
+    
+    > "...Şehirlerin anasını ve çevresini uyarasın diye indirdiğimiz bir kitaptır." [6/92](https://acikkuran.com/6/92)
+
+    > "Biz onu, ***akıl erdiresiniz diye Arapça*** bir Kur'an olarak indirdik." [12/2](https://acikkuran.com/12/2)
+    
+    > "...kendi kavminin diliyle gönderdik ki, **onlara** iyice açıklasın." [14/4](https://acikkuran.com/14/4)
+
+    > "Eğer biz onu başka dilde bir Kur'an yapsaydık onlar mutlaka, "Onun ayetleri genişçe açıklanmalı değil miydi? Başka dilde bir kitap ve Arap bir peygamber öyle mi?" derlerdi."  [41/44](https://acikkuran.com/41/44)
+
+- Bütün insanlara;
+    > "...***bütün insanlara*** müjdeleyici ve uyarıcı olarak gönderdik" [34/28](https://acikkuran.com/34/28)
+    
+    > "...***alemlere*** rahmet olarak gönderdik." [21/107](https://acikkuran.com/21/107)
+
+    > "***Ey insanlar!*** Şüphesiz ben, yer ve göklerin hükümranlığı kendisine ait olan Allah'ın hepinize gönderdiği peygamberiyim." [7/158](https://acikkuran.com/7/158)
 
 ## Tevbe bir defa mı iki defa mı?
 
