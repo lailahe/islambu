@@ -121,7 +121,7 @@ Yahudiler, Sabiiler ve Hıristiyanlar cennete gidebilirler mi?
 
 ## İslam Arap dini mi?
 
-Bazı ayetler bütün insanlığa gönderildi derken bazıları Araplara özel ayetlerdir. Ayrıca Fussilet-44 ayetinde Allah önce dile karar verip sonra o dili konuşan peygamberi ve kavmi seçebilirdi, sanki Arap olmak öncelikli dilde ona göre seçilmiş gibi.
+Bazı ayetler bütün insanlığa gönderildi derken bazıları Araplara özel ayetlerdir. Ayrıca Fussilet-44 ayetinde Allah önce dile karar verip sonra o dili konuşan peygamberi ve kavmi seçebilirdi, sanki Arap olmak öncelikli, dil de ona göre seçilmiş gibi.
 
 - Araplara özel;
     > "Biz, ***anlayasınız diye Arapça*** bir Kur'an yaptık." [43:3](https://acikkuran.com/43/3)
