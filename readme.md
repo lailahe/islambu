@@ -13,7 +13,6 @@
   - [Kur'an apaçık mı?](#kuran-apaçık-mı)
   - [Allah'ın ganimeti](#allahın-ganimeti)
   - [Peygamberler eşit mi?](#peygamberler-eşit-mi)
-  - [Kur'an kime indi?](#kuran-kime-indi)
   - [Allah'ın yemini](#allahın-yemini)
   - [Sövmeyin diyip söven Allah](#sövmeyin-diyip-söven-allah)
   - [Allah'ın velileri](#allahın-velileri)
@@ -244,14 +243,6 @@ Bakara-285'te Peygamberler arasında fark olmadığı söylenirken, aynı sureni
 > "İşte peygamberler! **Biz, onların bir kısmını bir kısmına üstün kıldık.** İçlerinden, Allah'ın konuştukları vardır. Bir kısmının da derecelerini yükseltmiştir..." [2:253](https://acikkuran.com/2/253)
 
 > "Peygamber, Rabbinden kendisine indirilene iman etti, mü'minler de (iman ettiler). Her biri; Allah'a, meleklerine, kitaplarına ve peygamberlerine iman ettiler ve şöyle dediler: '**Onun peygamberlerinden hiçbirini (diğerinden) ayırt etmeyiz...**'"  [2:285](https://acikkuran.com/2/285)
-
-## Kur'an kime indi?
-
-Kur'an şehirlerin anası ve çevresindekilere mi yoksa tüm alemlere mi indi? Enam-92'a göre şehirlerin anası ve çevresi Kalem-52'ye göre alemler.
-
-> "İşte bu, önündekileri doğrulayıcı ve şehirlerin anası ile çevresindekileri uyarman için indirdiğimiz kutlu Kitaptır..." [6:92](https://acikkuran.com/6/92)
-
-> "Halbuki o (Kur'an) bütün akıllı alemler için bir öğüttür." [68:52](https://acikkuran.com/68/52)
 
 ## Allah'ın yemini
 
