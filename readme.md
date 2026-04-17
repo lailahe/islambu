@@ -108,15 +108,13 @@ Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
 
 Yahudiler, Sabiiler ve Hıristiyanlar cennete gidebilirler mi?
 
-- Gidebilir diyen ayetler;
-    > "Şüphesiz, inananlar (Müslümanlar) ile Yahudiler, Hristiyanlar ve Sabiilerden (her bir grubun kendi şeriatında) "Allah'a ve ahiret gününe inanan ve salih ameller işleyenler için Rableri katında mükafat vardır; onlar korkuya uğramayacaklar, mahzun da olmayacaklardır" (diye hükmedilmiştir)." [2:62](https://acikkuran.com/2/62)
+- Gidebilir diyen ayetler (birbirinin aynısı tekrar ayetler 2:62 ve 5:69);
+    > "Şüphesiz, inananlar (Müslümanlar) ile Yahudiler, Hristiyanlar ve Sabiilerden "Allah'a ve ahiret gününe inanan ve salih ameller işleyenler için Rableri katında **mükafat vardır; onlar korkuya uğramayacaklar, mahzun da olmayacaklardır**" (diye hükmedilmiştir)." [2:62](https://acikkuran.com/2/62) [5:69](https://acikkuran.com/5/69)
     
-   > "Şüphesiz inananlar (müslümanlar) ile Yahudiler, Sabiiler ve Hristiyanlardan (her bir grubun kendi şeriatında) "Allah'a ve ahiret gününe inanan ve salih ameller işleyenler için hiçbir korku yoktur. Onlar mahzun da olmayacaklardır" (diye hükmedilmiştir.)" [5:69](https://acikkuran.com/5/69)
-
 - Gidemez diyen ayetler;
-    > "Kim İslam'dan başka bir din ararsa, (bilsin ki o din) ondan kabul edilmeyecek ve o ahirette hüsrana uğrayanlardan olacaktır." [3:85](https://acikkuran.com/3/85)
+    > "Kim İslam'dan başka bir din ararsa, (bilsin ki o din) ondan **kabul edilmeyecek ve o ahirette hüsrana uğrayanlardan olacaktır**." [3:85](https://acikkuran.com/3/85)
 
-    > "Yahudiler, "Üzeyr, Allah'ın oğludur" dediler. Hristiyanlar ise, "İsa Mesih, Allah'ın oğludur" dediler. Bu, onların ağızlarıyla söyledikleri (gerçeği yansıtmayan) sözleridir. Onların bu sözleri daha önce inkar etmiş kimselerin söylediklerine benziyor. Allah, onları kahretsin. Nasıl da haktan çevriliyorlar!" [9:30](https://acikkuran.com/9/30)
+    > "Yahudiler, "Üzeyr, Allah'ın oğludur" dediler. Hristiyanlar ise, "İsa Mesih, Allah'ın oğludur" dediler. Bu, onların ağızlarıyla söyledikleri (gerçeği yansıtmayan) sözleridir. Onların bu sözleri daha önce inkar etmiş kimselerin söylediklerine benziyor. **Allah, onları kahretsin. Nasıl da haktan çevriliyorlar!**" [9:30](https://acikkuran.com/9/30)
 
 ## İslam Arap dini mi?
 
