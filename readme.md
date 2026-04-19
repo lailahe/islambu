@@ -14,7 +14,7 @@
   - [Allah'ın ganimeti](#allahın-ganimeti)
   - [Peygamberler eşit mi?](#peygamberler-eşit-mi)
   - [Allah'ın yemini](#allahın-yemini)
-  - [Sövmeyin diyip söven Allah](#sövmeyin-diyip-söven-allah)
+  - [Sövmeyin deyip söven Allah](#sövmeyin-deyip-söven-allah)
   - [Allah'ın velileri](#allahın-velileri)
   - [Allah tek mi?](#allah-tek-mi)
   - [Allah yardıma muhtaç mı?](#allah-yardıma-muhtaç-mı)
@@ -250,7 +250,7 @@ Kur'an Allah'ın yeminleri ile doludur.Her şeyi yaratan Allah'ın insan gibi ye
 2. "Ant olsun kolaylıkla alanlara" [79/2](https://acikkuran.com/79/2)
 3. "Ant olsun yüzüp yüzüp gidenlere" [79/3](https://acikkuran.com/79/3)
 
-## Sövmeyin diyip söven Allah
+## Sövmeyin deyip söven Allah
 
 Enam-108′de farklı inançdakilere sövmeyin denirken;
 
