@@ -276,11 +276,11 @@ Bakara-285'te Peygamberler arasında fark olmadığı söylenirken, aynı sureni
 
 ## Allah'ın yemini
 
-Kur'an Allah'ın yeminleri ile doludur.Her şeyi yaratan Allah'ın insan gibi yemin etmesi bir çelişkidir.
+Kur'an Allah'ın yeminleri ile doludur. Her şeyi yaratan Allah'ın insan gibi yemin etmesi bir çelişkidir.
 
-1. "Ant olsun şiddetle çekip çıkaranlara" [79/1](https://acikkuran.com/79/1)
-2. "Ant olsun kolaylıkla alanlara" [79/2](https://acikkuran.com/79/2)
-3. "Ant olsun yüzüp yüzüp gidenlere" [79/3](https://acikkuran.com/79/3)
+1. "Yemin olsun şiddetle çekip çıkaranlara" [79/1](https://acikkuran.com/79/1)
+2. "Yemin olsun kolaylıkla alanlara" [79/2](https://acikkuran.com/79/2)
+3. "Yemin olsun yüzüp yüzüp gidenlere" [79/3](https://acikkuran.com/79/3)
 
 ## Sövmeyin deyip söven Allah
 
