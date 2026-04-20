@@ -9,7 +9,6 @@
   - [İslam Arap dini mi?](#i̇slam-arap-dini-mi)
   - [Tevbe bir defa mı iki defa mı?](#tevbe-bir-defa-mı-iki-defa-mı)
   - [İlk Müslüman](#i̇lk-müslüman)
-  - [Muhammed'in gafları](#muhammedin-gafları)
   - [İblis melek mi cin mi?](#i̇blis-melek-mi-cin-mi)
   - [Salat eden Allah](#salat-eden-allah)
   - [Ayetler değişken mi değil mi?](#ayetler-değişken-mi-değil-mi)
@@ -21,7 +20,7 @@
   - [Allah'ın velileri](#allahın-velileri)
   - [Allah tek mi?](#allah-tek-mi)
   - [Allah yardıma muhtaç mı?](#allah-yardıma-muhtaç-mı)
-  - [Yer ve gök kaç günde yaratılmıştır?](#yer-ve-gök-kaç-günde-yaratılmıştır)
+  - [Yaratılış altı gün mü sekiz gün mü?](#yaratılış-altı-gün-mü-sekiz-gün-mü)
   - [Musevilere "Yahudi" denmesi](#musevilere-yahudi-denmesi)
   - [İnananlar Muhammed'in kulu mu?](#i̇nananlar-muhammedin-kulu-mu)
   - [Cehennem'in yemeği](#cehennemin-yemeği)
@@ -46,6 +45,7 @@
   - [Bir gece bin aya bedel](#bir-gece-bin-aya-bedel)
   - [Tatlı suda inci ve mercan yetiştiği](#tatlı-suda-inci-ve-mercan-yetiştiği)
 - [Mantık hataları](#mantık-hataları)
+  - [Muhammed'in gafları](#muhammedin-gafları)
   - [Tanrının ganimeti](#tanrının-ganimeti)
   - [Muhammed'in ayeti](#muhammedin-ayeti)
 - [Kur'an, İncil ve Tevrat](#kuran-i̇ncil-ve-tevrat)
@@ -211,24 +211,6 @@ Ali İmran-90 ayetinde sadece bir defa inkar edip tevbe edenlerden söz edilirke
 
 > "**İbrahim** ne Yahudi idi, ne de Hristiyan. Fakat o, hanîf bir **Müslümandı**. O, müşriklerden de değildi." [3:67](https://acikkuran.com/3/67)
 
-## Muhammed'in gafları
-
-Aşağıdaki ayetlerde Kur'an'ı yazanın bir insan olduğu açıkça belli oluyor. Hitap eden Allah değil. Belli ki gaf yapmış, "De ki" ekini unutmuş.
-
-> "Şöyle ki Allahdan başkasına kul olmayın, ben size onun tarafından tebşir ve inzar için gönderilmiş bir Peygamberim" [11:2](https://acikkuran.com/11/2)
-
-> "Hakkında ayrılığa düştüğünüz herhangi bir şeyin hükmü Allah'a aittir. İşte bu, Rabbim Allah'tır. Yalnız O'na tevekkül ettim ve ancak O'na yöneliyorum." [42:10](https://acikkuran.com/42/10)
-
-> "Yahudiler, "Üzeyr, Allah'ın oğludur" dediler. Hristiyanlar ise, "İsa Mesih, Allah'ın oğludur" dediler. Bu, onların ağızlarıyla söyledikleri (gerçeği yansıtmayan) sözleridir. Onların bu sözleri daha önce inkar etmiş kimselerin söylediklerine benziyor. **Allah, onları kahretsin.** Nasıl da haktan çevriliyorlar!" [9:30](https://acikkuran.com/9/30)
-
-> "Allah ile beraber başka bir ilah edinmeyin. Gerçekten ben, size, Allah tarafından gönderilmiş açık bir uyarıcıyım." [51:51](https://acikkuran.com/51/51)
-
-> "Rabbinizden size gerçekleri gösteren deliller geldi. Artık kim gözünü açar hakkı idrak ederse kendi yararına, kim de (hakkın karşısında) körlük ederse kendi zararınadır. Ben başınızda bekçi değilim." [6:104](https://acikkuran.com/6/104)
-
-Enam-114'te Diyanet çevirisi fazladan (de) eklemiş, Arapçasında yok.
-
-> "Size Kitab'ı hak olarak indiren o iken ben Allah'tan başka bir hakem mi arayacağım?" (de). Kendilerine kitap verdiklerimiz de onun, Rabbin katından hak olarak indirilmiş olduğunu bilirler. O halde, sakın şüphecilerden olma." [6:114](https://acikkuran.com/6/114)
-
 ## İblis melek mi cin mi?
 
 İblis Bakara-34′e göre melek, Kehf-50′ye göre ise cindir.
@@ -340,17 +322,23 @@ Yaratanların en iyisi Allah'sa diğer yaratanlar kim?
 
 > "Ey iman edenler! Eğer siz Allah'a yardım ederseniz O da size yardım eder, ayaklarınızı kaydırmaz." [47:7](https://acikkuran.com/47/7)
 
-## Yer ve gök kaç günde yaratılmıştır?
+## Yaratılış altı gün mü sekiz gün mü?
 
-- 6 günde
-    > [7:54](https://acikkuran.com/7/54) [10:3](https://acikkuran.com/10/3) [11:7](https://acikkuran.com/11/7) [25:59](https://acikkuran.com/25/59)
+Yer ve gök yaratılmasını anlatılan ayetlerde matematik hatası aşağıdadır. 6 günde ve 8 günde çelişkisi ortaya çıkıyor.
 
-- 2 + 4 + 2 = 8 günde
+- 6 günde yaratan;
+    > "...gökleri ve yeryüzünü **altı gün** içinde yaratan." [7:54](https://acikkuran.com/7/54)
+
+    > "...gökleri ve yeryüzünü altı gün içinde yaratan" [10:3](https://acikkuran.com/10/3) 
+    
+    > "...gökleri ve yeryüzünü altı gün içinde yaratan" [11:7](https://acikkuran.com/11/7) 
+    
+    > "...gökleri ve yeryüzünü altı gün içinde yaratan" [25:59](https://acikkuran.com/25/59)
+
+- 2 + 4 + 2 = **8 günde** yaratan;
     > "De ki: 'Siz mi **yeri iki günde yaratanı** inkar ediyor...'" [41:9](https://acikkuran.com/41/9)
 
     > "O, **dört gün içinde, yeryüzünde yükselen sabit dağlar** yarattı..." [41:10](https://acikkuran.com/41/10)
-
-    > **Sonra duman halinde bulunan göğe yöneldi**; ona ve yeryüzüne, "İsteyerek veya istemeyerek gelin" dedi. İkisi de, "İsteyerek geldik" dediler. [41:11](https://acikkuran.com/41/11)
 
     > "Böylece onları, **iki günde yedi gök olarak** yarattı ve her göğe kendi işini bildirdi. En yakın göğü kandillerle süsledik ve onu koruduk..." [41:12](https://acikkuran.com/41/12)
 
@@ -531,6 +519,24 @@ Kadir-3 ayetinde bir gecenin bin aydan (bir ömür) daha hayırlı olduğu yazar
 *Rahman-9*, *Rahmnan-22* ayetleri ile *Furkan-53* ayetinde geçen iki denizin birbirine karıştırıldığı ama aralarında bir engel olduğu yazar. Denizlerden birinin suyunun içilebilen tatlı su olduğu, diğerinin acı ve tuzlu su olduğu yazılıdır. *Rahman-22*'de her ikisinde de inci ve mercan yetiştirildiği yazar. Halbuki tatlı suda inci ve mercan yetişmez. Suni olarak inci yetiştirilse bile mercan hiç yetişmez.
 
 # Mantık hataları
+
+## Muhammed'in gafları
+
+Aşağıdaki ayetlerde Kur'an'ı yazanın bir insan olduğu açıkça belli oluyor. Hitap eden Allah değil. Belli ki gaf yapmış, "De ki" ekini unutmuş.
+
+> "Şöyle ki Allahdan başkasına kul olmayın, ben size onun tarafından tebşir ve inzar için gönderilmiş bir Peygamberim" [11:2](https://acikkuran.com/11/2)
+
+> "Hakkında ayrılığa düştüğünüz herhangi bir şeyin hükmü Allah'a aittir. İşte bu, Rabbim Allah'tır. Yalnız O'na tevekkül ettim ve ancak O'na yöneliyorum." [42:10](https://acikkuran.com/42/10)
+
+> "Yahudiler, "Üzeyr, Allah'ın oğludur" dediler. Hristiyanlar ise, "İsa Mesih, Allah'ın oğludur" dediler. Bu, onların ağızlarıyla söyledikleri (gerçeği yansıtmayan) sözleridir. Onların bu sözleri daha önce inkar etmiş kimselerin söylediklerine benziyor. **Allah, onları kahretsin.** Nasıl da haktan çevriliyorlar!" [9:30](https://acikkuran.com/9/30)
+
+> "Allah ile beraber başka bir ilah edinmeyin. Gerçekten ben, size, Allah tarafından gönderilmiş açık bir uyarıcıyım." [51:51](https://acikkuran.com/51/51)
+
+> "Rabbinizden size gerçekleri gösteren deliller geldi. Artık kim gözünü açar hakkı idrak ederse kendi yararına, kim de (hakkın karşısında) körlük ederse kendi zararınadır. Ben başınızda bekçi değilim." [6:104](https://acikkuran.com/6/104)
+
+Enam-114'te Diyanet çevirisi fazladan (de) eklemiş, Arapçasında yok.
+
+> "Size Kitab'ı hak olarak indiren o iken ben Allah'tan başka bir hakem mi arayacağım?" (de). Kendilerine kitap verdiklerimiz de onun, Rabbin katından hak olarak indirilmiş olduğunu bilirler. O halde, sakın şüphecilerden olma." [6:114](https://acikkuran.com/6/114)
 
 ## Tanrının ganimeti
 
