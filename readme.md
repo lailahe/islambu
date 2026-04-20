@@ -1,6 +1,7 @@
 - [Çelişkili ayetler](#çelişkili-ayetler)
   - [Hesap günü aracılık](#hesap-günü-aracılık)
   - [Kötülük kimden gelir?](#kötülük-kimden-gelir)
+  - [Şirk bağışlanır mı bağışlanmaz mı?](#şirk-bağışlanır-mı-bağışlanmaz-mı)
   - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
   - [Ol deyince olduramayan Allah](#ol-deyince-olduramayan-allah)
   - [Cennete gidebilir mi gidemez mi?](#cennete-gidebilir-mi-gidemez-mi)
@@ -90,6 +91,16 @@ Kötülük Allah'tan mı gelir kendinden mi?
 
 - Kendinden;
     > "Sana ne iyilik gelirse Allah'tandır. Sana ne **kötülük gelirse kendindendir**. (Ey Muhammed!) Seni insanlara bir peygamber olarak gönderdik. Şahit olarak Allah yeter." [4:79](https://acikkuran.com/4/79)
+
+## Şirk bağışlanır mı bağışlanmaz mı?
+
+4:48 ayetinde şirk asla bağışlanmaz denirken 4:153 ayetinde affedilir, 39:53 ayetinde ise Allah "bütün günahları affeder" denir. Bu ayetler birbiri ile çelişmektedir.
+
+> "...Allah, kendisine şirki **asla bağışlamaz**" [4:48](https://acikkuran.com/4/48)
+
+> "...Buzağıyı tanrı edinmişlerdi (şirk koşmuşlardı), biz **buna rağmen onları affettik**" [4:153](https://acikkuran.com/4/153)
+
+> "...**bütün günahları affeder**" [39:53](https://acikkuran.com/39/53)
 
 ## Her şeyi bilmeyen Allah
 
