@@ -2,6 +2,7 @@
   - [Hesap günü aracılık](#hesap-günü-aracılık)
   - [Kötülük kimden gelir?](#kötülük-kimden-gelir)
   - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
+  - [Ol deyince olduramayan Allah](#ol-deyince-olduramayan-allah)
   - [Cennete gidebilir mi gidemez mi?](#cennete-gidebilir-mi-gidemez-mi)
   - [İslam Arap dini mi?](#i̇slam-arap-dini-mi)
   - [Tevbe bir defa mı iki defa mı?](#tevbe-bir-defa-mı-iki-defa-mı)
@@ -103,6 +104,37 @@ Sad-75 ayetinde Allah İblis'e soru soruyor.
 Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
 
 > Şimdi ise, Allah yükünüzü hafifletti ve sizde muhakkak bir zaaf olduğunu bildi. Eğer içinizde sabırlı yüz kişi olursa iki yüz kişiye galip gelirler. Eğer içinizde (sabırlı) bin kişi olursa, Allah'ın izniyle iki bin kişiye galip gelirler... [8:66](https://acikkuran.com/8/66)
+
+## Ol deyince olduramayan Allah
+
+Bazı ayetler "Allah 'Ol' derse hemen olur" derken bazı ayetler ise yeri iki, dağları dört, gökleri ise iki günde sırayla yarattığını söyler. Yani Allah 'Ol' deyince olduramamış ve işleri sıraya koyarak zamana ihtiyaç duymuş.
+
+- "Ol" deyince hemen olur;
+    > "Bir şeyi dilediği zaman, O'nun emri o şeye ancak "Ol!" demektir. **O da hemen oluverir.**" [36/82](https://acikkuran.com/36/82) 
+
+    > "O, yaşatan ve öldürendir. Bir şeye karar verdiğinde, ona sadece **"ol" der, o da oluverir.**" [40/68](https://acikkuran.com/40/68) 
+
+    > "(Meryem), "Ey Rabbim! Bana bir beşer dokunmamışken benim nasıl çocuğum olur?" dedi. Allah, "Öyle ama, Allah dilediğini yaratır. O, bir şeyin olmasını dilediğinde ona sadece **"ol" der, o da hemen oluverir"** dedi." [3/47](https://acikkuran.com/3/47) 
+
+    > "Allah'ın çocuk edinmesi düşünülemez. O, bundan yücedir, uzaktır. **Bir işe hükmettiği zaman ona sadece "ol!" der ve o da oluverir.**" [19/35](https://acikkuran.com/19/35) 
+
+    > "...Bir işe hükmetti mi ona sadece **"ol" der, o da hemen oluverir.**" [2:117](https://acikkuran.com/2/117) 
+
+    > "Biz bir şeyin olmasını istediğimiz zaman sözümüz sadece, ona, **"ol" dememizdir. O da hemen oluverir**." [16:40](https://acikkuran.com/16/40) 
+
+    > "O, gökleri ve yeri, hak ve hikmete uygun olarak yaratandır. **Allah'ın "ol" deyip de her şeyin oluvereceği günü** hatırla." [6/73](https://acikkuran.com/6/73) 
+
+- Sırayla, günleri bekleyerek, yönelerek;
+    > **Sonra duman halinde bulunan göğe yöneldi**; ona ve yeryüzüne, "İsteyerek veya istemeyerek gelin" dedi. İkisi de, "İsteyerek geldik" dediler. [41:11](https://acikkuran.com/41/11)
+    
+    > "De ki: 'Siz mi **yeri iki günde yaratanı** inkar ediyor...'" [41:9](https://acikkuran.com/41/9)
+
+    > "O, **dört gün içinde, yeryüzünde yükselen sabit dağlar** yarattı..." [41:10](https://acikkuran.com/41/10)
+
+    > "Böylece onları, **iki günde yedi gök olarak** yarattı ve her göğe kendi işini bildirdi. En yakın göğü kandillerle süsledik ve onu koruduk..." [41:12](https://acikkuran.com/41/12)
+
+    > "...**gökleri ve yeri altı gün içinde** yaratan ve tahta kurulan, geceyi, kendisini durmadan takip eden gündüze katan." [7:54](https://acikkuran.com/7/54)
+
 
 ## Cennete gidebilir mi gidemez mi?
 
@@ -351,7 +383,7 @@ Cennet tarif edilirken "eni, gökle yerin genişliği kadar", "genişliği gökl
 
 ## Evrenin yaratılışı
 
-Yerin 2, dağların 4, göklerin ise 2 günde yaratılmış olması ve yerin göklerden önce yaratılmış olması (Füssilet/9-10-11-12)
+Yerin 2, dağların 4, göklerin ise 2 günde yaratılmış olması ve yerin göklerden önce yaratılmış olması (Füssilet/9-10-11-12, Araf-54)
 
 > "De ki: 'Siz mi **yeri iki günde yaratanı** inkar ediyor...'" [41:9](https://acikkuran.com/41/9)
 
@@ -359,8 +391,9 @@ Yerin 2, dağların 4, göklerin ise 2 günde yaratılmış olması ve yerin gö
 
 > **Sonra duman halinde bulunan göğe yöneldi**; ona ve yeryüzüne, "İsteyerek veya istemeyerek gelin" dedi. İkisi de, "İsteyerek geldik" dediler. [41:11](https://acikkuran.com/41/11)
 
-
 > "Böylece onları, **iki günde yedi gök olarak** yarattı ve her göğe kendi işini bildirdi. En yakın göğü kandillerle süsledik ve onu koruduk..." [41:12](https://acikkuran.com/41/12)
+
+> "...**gökleri ve yeri altı gün içinde** yaratan ve tahta kurulan, geceyi, kendisini durmadan takip eden gündüze katan." [7:54](https://acikkuran.com/7/54)
 
 ## Miras dağıtımında matematik hatası
 
@@ -474,7 +507,6 @@ Kadir-3 ayetinde bir gecenin bin aydan (bir ömür) daha hayırlı olduğu yazar
 ## Tatlı suda inci ve mercan yetiştiği
 
 *Rahman-9*, *Rahmnan-22* ayetleri ile *Furkan-53* ayetinde geçen iki denizin birbirine karıştırıldığı ama aralarında bir engel olduğu yazar. Denizlerden birinin suyunun içilebilen tatlı su olduğu, diğerinin acı ve tuzlu su olduğu yazılıdır. *Rahman-22*'de her ikisinde de inci ve mercan yetiştirildiği yazar. Halbuki tatlı suda inci ve mercan yetişmez. Suni olarak inci yetiştirilse bile mercan hiç yetişmez.
-
 
 # Mantık hataları
 
