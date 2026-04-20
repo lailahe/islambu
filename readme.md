@@ -3,6 +3,7 @@
   - [Kötülük kimden gelir?](#kötülük-kimden-gelir)
   - [Şirk bağışlanır mı bağışlanmaz mı?](#şirk-bağışlanır-mı-bağışlanmaz-mı)
   - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
+  - [Kıyamet günü sorgu var mı yok mu?](#kıyamet-günü-sorgu-var-mı-yok-mu)
   - [Ol deyince olduramayan Allah](#ol-deyince-olduramayan-allah)
   - [Cennete gidebilir mi gidemez mi?](#cennete-gidebilir-mi-gidemez-mi)
   - [İslam Arap dini mi?](#i̇slam-arap-dini-mi)
@@ -116,6 +117,16 @@ Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
 
 > Şimdi ise, Allah yükünüzü hafifletti ve sizde muhakkak bir zaaf olduğunu bildi. Eğer içinizde sabırlı yüz kişi olursa iki yüz kişiye galip gelirler. Eğer içinizde (sabırlı) bin kişi olursa, Allah'ın izniyle iki bin kişiye galip gelirler... [8:66](https://acikkuran.com/8/66)
 
+## Kıyamet günü sorgu var mı yok mu?
+
+15:92 ayeti kıyamet günü sorgu var derken 55:39 ayeti sorgu yok der. Bu bir çelişkidir.
+
+- Sorgu var;
+    >"Rabbin hakkı için, onların **hepsini mutlaka sorgulayacağız**." [15:92](https://acikkuran.com/15/92) 
+
+- Sorgu yok; 
+    > "O gün ne insana ne de cinne **günahı sorulmaz**." [55:39](https://acikkuran.com/55/39)
+
 ## Ol deyince olduramayan Allah
 
 Bazı ayetler "Allah 'Ol' derse hemen olur" derken bazı ayetler ise yeri iki, dağları dört, gökleri ise iki günde sırayla yarattığını söyler. Yani Allah 'Ol' deyince olduramamış ve işleri sıraya koyarak zamana ihtiyaç duymuş.
@@ -185,9 +196,9 @@ Bazı ayetler bütün insanlığa gönderildi derken bazıları Araplara özel a
 
 Ali İmran-90 ayetinde sadece bir defa inkar edip tevbe edenlerden söz edilirken Nisa-137 ayetinde ise iki defa iman edip sonra inkar edenlerden söz edilir. Dolayısıyla burada bir defa mı iman edip inkar edenler yoksa iki defa mı iman edip sonra inkar edenler çelişkisi ortaya çıkıyor.
 
-- Bir defa iman
+- Bir defa iman;
     > Şüphesiz iman ettikten sonra inkar eden, sonra da inkarda ileri gidenlerin tövbeleri asla kabul edilmeyecektir. İşte onlar sapıkların ta kendileridir. [3:90](https://acikkuran.com/3/90)
-- İki defa iman
+- İki defa iman;
     > İman edip sonra inkar eden, sonra inanıp tekrar inkar eden, sonra da inkarlarında ileri gidenler var ya; Allah, onları bağışlayacak da değildir, doğru yola iletecek de değildir. [4:137](https://acikkuran.com/4/137)
 
 ## İlk Müslüman
