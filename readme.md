@@ -611,7 +611,7 @@ Tabii.­.. Hayvanlar arasında güçlü veya önder olanın önünde başını y
 
 ## İlgili Kuran ayeti
 
-> Namazı bitirdiğinizde, Allah'ı ayaktayken, otururken ve yan yatarken zikredin. Artık ‘güvenliğe kavuşursanız' namazı dosdoğru kılın. Çünkü namaz, mü'minler üzerinde vakitleri belirlenmiş bir farzdır. Nisa-103
+> Salatı ikame ettikten sonra ayakta, oturarak ve yanlarınız üzerinde Allah'ı anın. Güvene kavuştuğunuz zaman, salatı gereği gibi ikame edin. Kuşkusuz salat, belirlenmiş vakitlerde* Mü'minler üzerine yazılmıştır. [4:103](https://acikkuran.com/4/103)
 
 # Kur'an'a inanmamak için nedenler
 
