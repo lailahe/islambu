@@ -136,7 +136,7 @@ Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
 
 > "...biz insanı **kuru bir çamurdan, şekillendirilmiş bir balçıktan** yarattık." [15:26](https://acikkuran.com/15/26)
 
-> İnsan, daha önce **hiçbir şey değil iken kendisini yarattığımızı** düşünmez mi? [19:67](https://acikkuran.com/19/67)
+> "İnsan, daha önce **hiçbir şey değil iken kendisini yarattığımızı** düşünmez mi?" [19:67](https://acikkuran.com/19/67)
 
 ## Ol deyince olduramayan Allah
 
