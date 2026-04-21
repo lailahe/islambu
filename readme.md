@@ -4,6 +4,7 @@
   - [Şirk bağışlanır mı bağışlanmaz mı?](#şirk-bağışlanır-mı-bağışlanmaz-mı)
   - [Her şeyi bilmeyen Allah](#her-şeyi-bilmeyen-allah)
   - [Kıyamet günü sorgu var mı yok mu?](#kıyamet-günü-sorgu-var-mı-yok-mu)
+  - [İnsan hangi maddeden yaratıldı?](#i̇nsan-hangi-maddeden-yaratıldı)
   - [Ol deyince olduramayan Allah](#ol-deyince-olduramayan-allah)
   - [Cennete gidebilir mi gidemez mi?](#cennete-gidebilir-mi-gidemez-mi)
   - [İslam Arap dini mi?](#i̇slam-arap-dini-mi)
@@ -126,6 +127,16 @@ Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
 
 - Sorgu yok; 
     > "O gün ne insana ne de cinne **günahı sorulmaz**." [55:39](https://acikkuran.com/55/39)
+
+## İnsan hangi maddeden yaratıldı?
+
+İnsan hangi maddeden yaratıldı? **Su**, **kil** ve **hiçbir şey** olarak aşağıdaki üç ayet çelişmektedir.
+
+> "...**diri olan her şeyi sudan** meydana getirdiğimizi görmediler mi? Hala inanmayacaklar mı?" [21:30](https://acikkuran.com/21/30)
+
+> "...biz insanı **kuru bir çamurdan, şekillendirilmiş bir balçıktan** yarattık." [15:26](https://acikkuran.com/15/26)
+
+> İnsan, daha önce **hiçbir şey değil iken kendisini yarattığımızı** düşünmez mi? [19:67](https://acikkuran.com/19/67)
 
 ## Ol deyince olduramayan Allah
 
