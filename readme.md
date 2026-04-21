@@ -316,11 +316,11 @@ Yaratanların en iyisi Allah'sa diğer yaratanlar kim?
 
 ## Allah yardıma muhtaç mı?
 
-112/2 ayetinde Allah "hiç bir şeye muhtaç değildir" denirken Muhammed-7 ayetinde "Allah'a yardım ederseniz O da size yardım eder" denmektedir. Bu bir çelişkidir.
+112:2 ayetinde Allah muhtaç değildir, 47:7 ayetinde muhtaçtır. Bu bir çelişkidir.
 
-> "Allah eksiksiz, sameddir (Bütün varlıklar O'na muhtaç, fakat O, hiç bir şeye muhtaç değildir)" [112:2](https://acikkuran.com/112/2)
+> "Allah **Samed'dir. (Her şey O'na muhtaçtır; O, hiçbir şeye muhtaç değildir.)**" [112:2](https://acikkuran.com/112/2)
 
-> "Ey iman edenler! Eğer siz Allah'a yardım ederseniz O da size yardım eder, ayaklarınızı kaydırmaz." [47:7](https://acikkuran.com/47/7)
+> "Ey iman edenler! Eğer siz **Allah'a yardım ederseniz o da size yardım eder**, ayaklarınızı kaydırmaz." [47:7](https://acikkuran.com/47/7)
 
 ## Yaratılış altı gün mü sekiz gün mü?
 
