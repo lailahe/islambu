@@ -140,9 +140,9 @@ Enfal-66 ayetinde Allah duruma göre fikir değiştiriyor ve her şeyi bilmiyor.
 
 ## Ol deyince olduramayan Allah
 
-Bazı ayetler "Allah 'Ol' derse hemen olur" derken bazı ayetler ise yeri iki, dağları dört, gökleri ise iki günde sırayla yarattığını söyler. Yani Allah 'Ol' deyince olduramamış ve işleri sıraya koyarak zamana ihtiyaç duymuş.
+Bazı ayetler "Allah 'Ol' derse hemen olur" derken bazı ayetler zamana ihtiyaç duyarak, sırayla ve şekillendirerek yarattı der.
 
-- "Ol" deyince hemen olur;
+- "Ol" deyince hemen olur diyen ayetler;
     > "Bir şeyi dilediği zaman, O'nun emri o şeye ancak "Ol!" demektir. **O da hemen oluverir.**" [36/82](https://acikkuran.com/36/82) 
 
     > "O, yaşatan ve öldürendir. Bir şeye karar verdiğinde, ona sadece **"ol" der, o da oluverir.**" [40/68](https://acikkuran.com/40/68) 
@@ -157,7 +157,7 @@ Bazı ayetler "Allah 'Ol' derse hemen olur" derken bazı ayetler ise yeri iki, d
 
     > "O, gökleri ve yeri, hak ve hikmete uygun olarak yaratandır. **Allah'ın "ol" deyip de her şeyin oluvereceği günü** hatırla." [6/73](https://acikkuran.com/6/73) 
 
-- Sırayla, günleri bekleyerek, yönelerek;
+- Sırayla, süreli, yönelerek, şekillendirerek yaratan ayetler;
     > **Sonra duman halinde bulunan göğe yöneldi**; ona ve yeryüzüne, "İsteyerek veya istemeyerek gelin" dedi. İkisi de, "İsteyerek geldik" dediler. [41:11](https://acikkuran.com/41/11)
     
     > "De ki: 'Siz mi **yeri iki günde yaratanı** inkar ediyor...'" [41:9](https://acikkuran.com/41/9)
@@ -168,6 +168,7 @@ Bazı ayetler "Allah 'Ol' derse hemen olur" derken bazı ayetler ise yeri iki, d
 
     > "...**gökleri ve yeri altı gün içinde** yaratan ve tahta kurulan, geceyi, kendisini durmadan takip eden gündüze katan." [7:54](https://acikkuran.com/7/54)
 
+    > "...biz insanı kuru bir **çamurdan, şekillendirilmiş bir balçıktan** yarattık." [15:26](https://acikkuran.com/15/26)
 
 ## Cennete gidebilir mi gidemez mi?
 
