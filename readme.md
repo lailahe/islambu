@@ -26,6 +26,7 @@
   - [İnananlar Muhammed'in kulu mu?](#i̇nananlar-muhammedin-kulu-mu)
   - [Cehennem'in yemeği](#cehennemin-yemeği)
   - [Allah her yerde mi değil mi?](#allah-her-yerde-mi-değil-mi)
+  - [Ganimetin hepsi mi beşte biri mi?](#ganimetin-hepsi-mi-beşte-biri-mi)
 - [Bilim dışı ayetler](#bilim-dışı-ayetler)
   - [İnsan nasıl yaratıldı?](#i̇nsan-nasıl-yaratıldı)
   - [Cennetin genişliği](#cennetin-genişliği)
@@ -390,6 +391,16 @@ Allah her yerde ise iki yay aralığı kadar nasıl yaklaşabilir? Aşağıdaki 
 
 - **Her yerde değil;**
     > "...(Peygambere olan mesafesi) iki yay aralığı kadar, yahut daha az oldu." [53:9](https://acikkuran.com/53/9)
+
+## Ganimetin hepsi mi beşte biri mi?
+
+8:1 ayeti ganimetin hepsi derken 8:41 ayeti beşte biri diyor.
+
+- **Hepsi;**
+    > "...Sana ganimetler hakkında soruyorlar. De ki: '**Ganimetler, Allah'a ve Resulüne aittir**...'" [8:1](https://acikkuran.com/8/1)
+
+- **Beşte biri;**
+    > "Bilin ki, ganimet olarak aldığınız herhangi bir şeyin beşte biri mutlaka Allah'a, Peygamber'e, onun yakınlarına, yetimlere, yoksullara ve yolculara aittir." [8:41](https://acikkuran.com/8/41)
 
 # Bilim dışı ayetler
 
