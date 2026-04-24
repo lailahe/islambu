@@ -25,6 +25,7 @@
   - [Musevilere "Yahudi" denmesi](#musevilere-yahudi-denmesi)
   - [İnananlar Muhammed'in kulu mu?](#i̇nananlar-muhammedin-kulu-mu)
   - [Cehennem'in yemeği](#cehennemin-yemeği)
+  - [Allah her yerde mi değil mi?](#allah-her-yerde-mi-değil-mi)
 - [Bilim dışı ayetler](#bilim-dışı-ayetler)
   - [İnsan nasıl yaratıldı?](#i̇nsan-nasıl-yaratıldı)
   - [Cennetin genişliği](#cennetin-genişliği)
@@ -380,6 +381,15 @@ Gaşiye-6 ayetinde cehhennemde sadece dikenli bitki yeneceğini söylenirken Duh
 
 > "Doğrusu (cehennemde) günahkarların yiyeceği zakkum ağacıdır; karınlarda suyun kaynaması gibi kaynayan, erimiş maden gibidir." [44:42](https://acikkuran.com/44/42), [44:43](https://acikkuran.com/44/43), [44:44](https://acikkuran.com/44/44)
 
+## Allah her yerde mi değil mi?
+
+Allah her yerde ise iki yay aralığı kadar nasıl yaklaşabilir? Aşağıdaki iki ayet çelişmektedir.
+
+- **Her yerde;**
+    > "...Nerede olsanız, O sizinle beraberdir." [57:4](https://acikkuran.com/57/4)
+
+- **Her yerde değil;**
+    > "...(Peygambere olan mesafesi) iki yay aralığı kadar, yahut daha az oldu." [53:9](https://acikkuran.com/53/9)
 
 # Bilim dışı ayetler
 
