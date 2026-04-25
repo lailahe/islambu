@@ -233,10 +233,6 @@ Ali İmran-90 ayetinde sadece bir defa inkar edip tevbe edenlerden söz edilirke
 
 > "Hani biz meleklere, 'Adem için saygı ile eğilin' demiştik de İblis'ten başka hepsi saygı ile eğilmişlerdi. **İblis ise cinlerdendi**..." [18:50](https://acikkuran.com/18/50)
 
-> "Ey Peygamber! Müminleri cihada teşvik eyle. **Eğer sizden sabredecek yirmi kişi olursa ikiyüze galip gelirler ve eğer sizden yüz kişi olursa kafirlerden bin kişiye galip gelirler.** Çünkü onlar hakkı ve akıbeti düşünmeyen anlayışsız bir kavimdirler." [8:65](https://acikkuran.com/8/65)
-
-> "Şimdi Allah sizden yükü hafifletti ve sizde bir zaaf olduğunu bildi. O halde sizden sabredecek yüz kişi olursa ikiyüz düşmana galip gelirler, sizden bin kişi olursa Allah'ın izniyle ikibin düşmana galip gelirler. Allah sabredenlerle beraberdir." [8:66](https://acikkuran.com/8/66)
-
 ## Salat eden Allah
 
 Ahzab-56 ayetinde Allah'ın peygambere salat (dua, namaz) ettiği ifadesi büyük çelişkidir.
