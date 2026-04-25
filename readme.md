@@ -49,7 +49,7 @@
   - [Musevilere "Yahudi" denmesi](#musevilere-yahudi-denmesi)
   - [Muhammed'in gafları](#muhammedin-gafları)
   - [İnananlar Muhammed'in kulu mu?](#i̇nananlar-muhammedin-kulu-mu)
-  - [Tanrının ganimeti](#tanrının-ganimeti)
+  - [Antropomorfik tanrı](#antropomorfik-tanrı)
   - [Muhammed'in ayeti](#muhammedin-ayeti)
 - [Kur'an, İncil ve Tevrat](#kuran-i̇ncil-ve-tevrat)
   - [Kur'an ve İncil](#kuran-ve-i̇ncil)
@@ -567,9 +567,9 @@ Aynı ifadeyi Zümer-53′de de görmekteyiz:
 
 > De ki: "Ey kendilerinin aleyhine aşırı giden kullarım! Allah'ın rahmetinden ümidinizi kesmeyin. Şüphesiz Allah, bütün günahları affeder. Çünkü O, çok bağışlayandır, çok merhamet edendir." [39:53](https://acikkuran.com/39/53)
 
-## Tanrının ganimeti
+## Antropomorfik tanrı
 
-Enfal-41 ayetinde savaş ganimetinin beşte biri Allah ve Peygamber'e verilecek diyor. Allah bir tanrı olduğuna göre kendi yarattığı maddi varlıklara ihtiyaç duymaz. Ayrıca Peygamber öldükten sonra ayet geçersiz olacağı için tanrının bunu belirtmesi mantıksız.
+Enfal-41 ayetinde savaş ganimetinin beşte biri Allah ve Peygamber'e verilecek diyor. Allah bir tanrı olduğuna göre kendi yarattığı maddi varlıklara ihtiyaç duymaz. Ayrıca Peygamber öldükten sonra ayet geçersiz olacağı için tanrının bunu belirtmesi mantıksız. Antropomorfik (İnsan biçimci) bir tanrı anlatımı söz konusu.
 
 > "...ganimetin beşte biri mutlaka Allah'a, Peygamber'e, onun yakınlarına..." [8:41](https://acikkuran.com/8/41)
 
