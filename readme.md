@@ -431,15 +431,17 @@ Ayetten Dünya'yı göğün altında uçsuz bucaksız bir yer olarak gören ve g
 
 ## Kalbin düşünme organı sanılması
 
-Eski çağlarda kalp düşünme organı sanıldığı için ayetlerde duygular, düşünceler, inançlar kalpteymiş gibi anlatılmış. Osya kalp kan basıncını düzenleyen bir organdır.
+Kuran'da kalp sözcüğü yaklaşık 260 kez geçer. Eski çağlarda kalp düşünme organı sanıldığı için ayetlerde duygular, düşünceler, inançlar kalpteymiş gibi anlatılmış. Tıpkı Antik Mısır'da olduğu gibi İslam'da da kalp beyin sanılıyor. Osya kalp kan basıncını düzenleyen bir organdır.
+
+> "Kur'an'ı **anlamamaları için kalpleri üzerine perdeler**, kulaklarına da ağırlık koyarız" [17:46](https://acikkuran.com/17/46)
+
+> "...senin **kalbine** apaçık Arapça bir dil ile indirmiştir." [26:195](https://acikkuran.com/26/195)
 
 > "...müjde verici olarak senin **kalbine indirmiştir**." [2:97](https://acikkuran.com/2/97)
 
 > "Kim şahitliği gizlerse, şüphesiz onun **kalbi günahkardır**." [2:283](https://acikkuran.com/2/283)
 
 > "**Kalbini bizi anmaktan gafil kıldığımız...**" [18:28](https://acikkuran.com/18/28)
-
-> "...senin **kalbine** apaçık Arapça bir dil ile indirmiştir." [26:195](https://acikkuran.com/26/195)
 
 ## Yıldırım ile korkutan Allah
 
