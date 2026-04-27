@@ -529,7 +529,13 @@ Kadir-3 ayetinde bir gecenin bin aydan (bir ömür) daha hayırlı olduğu yazar
 
 ## Tatlı suda inci ve mercan yetiştiği
 
-*Rahman-9*, *Rahmnan-22* ayetleri ile *Furkan-53* ayetinde geçen iki denizin birbirine karıştırıldığı ama aralarında bir engel olduğu yazar. Denizlerden birinin suyunun içilebilen tatlı su olduğu, diğerinin acı ve tuzlu su olduğu yazılıdır. *Rahman-22*'de her ikisinde de inci ve mercan yetiştirildiği yazar. Halbuki tatlı suda inci ve mercan yetişmez. Suni olarak inci yetiştirilse bile mercan hiç yetişmez.
+Rahman ve Furkan surelerinde geçen denizlerden birinin suyunun içilebilen tatlı su olduğu, diğerinin acı ve tuzlu su olduğu yazılıdır. *Rahman-22*'de her ikisinde de inci ve mercan çıktığı yazar. Oysa tatlı suda inci ve mercan yetişmez.
+
+> "O, birinin **suyu lezzetli ve tatlı**, **diğerininki tuzlu ve acı** olan iki denizi salıverip aralarına da görünmez bir perde ve karışmalarını önleyici bir engel koyandır." [25:53](https://acikkuran.com/25/53)
+
+> "(Suları acı ve tatlı olan) iki denizi salıvermiştir; birbirine kavuşuyorlar." [55:19](https://acikkuran.com/55/19)
+
+> "O denizlerin her **ikisinden de inci ve mercan** çıkar." [55:22](https://acikkuran.com/55/22)
 
 # Mantık hataları
 
