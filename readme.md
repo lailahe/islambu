@@ -28,7 +28,10 @@
 - [Bilim dışı ayetler](#bilim-dışı-ayetler)
   - [İnsan nasıl yaratıldı?](#i̇nsan-nasıl-yaratıldı)
   - [Cennetin genişliği](#cennetin-genişliği)
-  - [Evrenin yaratılışı](#evrenin-yaratılışı)
+  - [Düz Dünya](#düz-dünya)
+    - [Düz Dünya'ya doğrudan atıf yapılan ayetler](#düz-dünyaya-doğrudan-atıf-yapılan-ayetler)
+    - [Düz Dünya'ya dolaylı gönderme yapan ayetler.](#düz-dünyaya-dolaylı-gönderme-yapan-ayetler)
+  - [Dünya'nın yaratılış süresi](#dünyanın-yaratılış-süresi)
   - [Miras dağıtımında matematik hatası](#miras-dağıtımında-matematik-hatası)
   - [Güneşin kara çamurlu bir suya batması.](#güneşin-kara-çamurlu-bir-suya-batması)
   - [Kalbin düşünme organı sanılması](#kalbin-düşünme-organı-sanılması)
@@ -396,15 +399,50 @@ Ayet bel ile kaburga kemikleri arasından diyor tıp ise testislerden diyor.
 
 ## Cennetin genişliği
 
-Cennet tarif edilirken "eni, gökle yerin genişliği kadar", "genişliği göklerle yer arası kadar" ifadeleri geçiyor. Yerden kastedilen Dünya gezegeni olduğuna göre, Dünya da diğer gök cisimlerinden biri olduğuna göre "gök ile yer kadar" demek anlamsız bir ifadedir. Hatta bu ifadeden yerin altta, uzayın ise üstte algılandığı anlaşılmaktadır.
+Cennet tarif edilirken "eni, gökle yerin genişliği kadar", "genişliği göklerle yer arası kadar" ifadeleri geçiyor. Yerden kastedilen Dünya gezegeni olduğuna göre, Dünya da diğer gök cisimlerinden biri olduğuna göre "gök ile yer kadar" demek anlamsız bir ifadedir. Hatta bu ifadeden yerin altta, uzayın ise üstte düz olarak algılandığı anlaşılmaktadır.
 
 > "Rabbinizin bağışına, **genişliği göklerle yer arası kadar** olan ve Allah'a karşı gelmekten sakınanlar için hazırlanmış bulunan cennete koşun." [3:133](https://acikkuran.com/3/133)
 
 > "Rabbinizden bir bağışlanmaya ve **eni, gökle yerin genişliği kadar olan**, Allah'a ve Resulüne inananlar için hazırlanan cennete... [57:21](https://acikkuran.com/57/21)
 
-## Evrenin yaratılışı
+## Düz Dünya
 
-Yerin 2, dağların 4, göklerin ise 2 günde yaratılmış olması ve yerin göklerden önce yaratılmış olması (Füssilet/9-10-11-12, Araf-54)
+Yeryüzünün yaratılmasını anlatan ayetlerde "yaymak", "döşemek", "sergi", "düzlemek" "döşek" gibi ifadeler seçilmesi düz Dünya modeli anlatısıdır. Doğrudan atıf yapan ve dolaylı olarak düz Dünya'ya atıf yapan ayetler aşağıdadır.
+
+### Düz Dünya'ya doğrudan atıf yapılan ayetler
+
+* [2:22](https://acikkuran.com/2/22) - firâşan - oturmaya serilen şey, döşek - فرش
+* [13:3](https://acikkuran.com/13/3) - medde - yaymak, uzatmak, genişletmek - مدد
+* [15:19](https://acikkuran.com/15/19) - medednaha - yaymak, uzatmak, genişletmek - مدد
+* [20:53](https://acikkuran.com/20/53) - mehden - beşik, döşek, yatak - مهد
+* [50:7](https://acikkuran.com/50/7) - medednaha - yaymak, uzatmak, genişletmek - مدد
+* [51:48](https://acikkuran.com/51/48) - feraşnaha - biz döşedik - فرش-- 
+* [71:19](https://acikkuran.com/71/19) - bisaten - bir sergi, yaygı, halı - بِسَاطًۭا
+* [78:6](https://acikkuran.com/78/6) - mihaden - beşik, döşek, yatak - مهد
+* [79:30](https://acikkuran.com/79/30) - dehaha	- genişçe yaymak, دحو
+* [88:20](https://acikkuran.com/88/20) - sutihat - düz olarak yayılıp, döşenmiş - سطح
+* [91:6](https://acikkuran.com/91/6) - tahaha - yayana, döşeyene - طحو
+
+### Düz Dünya'ya dolaylı gönderme yapan ayetler.
+
+* [2:144](https://acikkuran.com/2/144) - Kâbe'ye doğru namaz kılmak
+* [2:187](https://acikkuran.com/2/187) - Oruç vakti için kutuplar yok. "Şafağın aydınlığı gecenin karanlığından ayırt edilinceye kadar"
+* [18:47](https://acikkuran.com/18/47) - "Dağlar kaldırıldığı zaman, bütün yer çırılçıplak ortaya çıkacaktır."
+* [18:86](https://acikkuran.com/18/86) - "Güneşin battığı yere varınca..."
+* [18:90](https://acikkuran.com/18/90) - "Güneşin doğduğu yere ulaşınca..."
+* [17:78](https://acikkuran.com/17/78) - Salat vakti için kutuplar yok. "Güneşin sarkmasından gecenin kararmasına kadar salat et"
+* [17:37](https://acikkuran.com/17/37) - Yeri asla yırtamazsın/yaramazsın, boyca da dağlara asla erişemezsin.
+* [20:106](https://acikkuran.com/20/106) - Dağlar dağıldığında, yeryüzü dümdüz bir ova olur.
+* [26:28](https://acikkuran.com/26/28) - Doğu'nun, batı'nın ve ikisi arasında kalan her şeyin Rabbi.
+* [55:17](https://acikkuran.com/55/17) - İki doğunun ve iki batının Rabbi.
+* [57:21](https://acikkuran.com/57/21) - Cennet bahçesi, genişliği göklerin ve yerin genişliği kadardır.
+* [69:14](https://acikkuran.com/69/14) - Yer ve dağlar çarpma ile yerlerinden kaldırılacaktır.
+
+## Dünya'nın yaratılış süresi
+
+Yerin 2, dağların 4, göklerin ise 2 günde yaratılmış olması ve yerin göklerden önce yaratılmış olması bilim dışıdır.
+
+Dünya, yaklaşık 4,5 ila 4,6 milyar yıl önce, genç Güneş'in etrafındaki toz ve gaz bulutlarının yerçekimi etkisiyle birikip yoğunlaşması sonucu oluşmuştur. Gezegenin temel şeklini alması 10-20 milyon yıl sürmüş olsa da, bugünkü yapısına kavuşması ve soğuması milyarlarca yıl süren bir evrimsel süreçtir.
 
 > "De ki: 'Siz mi **yeri iki günde yaratanı** inkar ediyor...'" [41:9](https://acikkuran.com/41/9)
 
